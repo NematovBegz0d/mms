@@ -719,3 +719,122 @@ Aslida "lider yo'q" sinf bo'lmaydi — salohiyat ochilmagan, xolos. **Birinchida
 ## 26. Raqobatbardosh kasb egalari haqida ko'nikmangiz?
 
 Raqobatbardosh mutaxassis — bugungi va ertangi mehnat bozorida talabgir bo'ladigan kishi. **Ko'nikmalari:** **chuqur kasbiy bilim** + amaliy mahorat; **raqamli savodxonlik** va AIdan foydalanish; **chet tili** (ingliz tili); **yumshoq ko'nikmalar** (muloqot, jamoada ishlash, muammo yechish, liderlik); **doimiy o'rganish** va moslashuvchanlik. Men o'quvchilarni klublar, kasbga yo'naltirish va "Prezident iqtidorli farzandlari" dasturi orqali shu ko'nikmalarga tayyorlayman. Maqsad — o'quvchilarim **global mehnat bozorida** raqobatbardosh bo'lishi.
+
+
+---
+
+# 🔥 O'TGAN YIL REAL SAVOLLARI (3-to'plam) — MUKAMMAL JAVOBLAR
+
+> Bu to'plamda savollar mavzu bo'yicha guruhlangan. Eng ko'p uchragan mavzular: **kasblar dunyosi** (yo'qolayotgan/yangi/daromadli), **muammoli vaziyatlar**, **inklyuziv ta'lim**, **jamoa va motivatsiya**, **tadbirlar tashkil etish**.
+
+## A. Maslahatchi: kim, vazifa, majburiyat, reja
+
+Maktab maslahatchisi — "Kelajak" markazining maqsad va vazifalarini maktabda amalga oshiruvchi, o'quvchilarni qo'shimcha ta'lim, to'garak, loyiha va tashabbuslarga jalb qiluvchi mutaxassis (ikki rahbarga — tuman "Kelajak" markazi va maktab direktoriga bo'ysunadi).
+
+**Asosiy vazifalari:** "Prezident iqtidorli farzandlari" dasturini targ'ib qilish; 7 ta klub va tarmoq to'garaklarini tashkil etish; kasbga yo'naltirish; milliy qadriyatlarni singdirish; iqtidorlilarni nufuzli oliygohlarga tayyorlash; "Ijtimoiy portfolio"ni yuritish.
+
+**Majburiyatlari:** qonunlarga rioya; ta'lim obro'siga zarar yetkazmaslik; topshiriqlarni bajarish; **har oylik hisobot** berish; hujjat yuritish.
+
+**Istiqbol rejam:** 1-bosqich — o'quvchilar bazasini tuzish; 2-bosqich — klublar va "O'quvchilar kengashi"; 3-bosqich — kasbga yo'naltirish va iqtidorlilarni TOP-100 oliygohlarga tayyorlash.
+
+## B. Inklyuziv ta'lim va nogironligi bo'lgan o'quvchilar
+
+**Inklyuziv to'garaklar va bola bilan ishlash:** Nizomga ko'ra **inklyuziv to'garaklar** tashkil qilaman. **1-qadam:** psixolog va ota-ona bilan bolaning imkoniyati va ehtiyojini aniqlayman. **2-qadam:** unga mos faoliyat (rasm, musiqa, qo'l mehnati, ekologiya, IT) tanlayman. **3-qadam:** umumiy jamoaga jalb qilaman. **4-qadam:** individual, sabrli yondashaman, kichik yutuqlarini rag'batlantiraman.
+
+**Kasbga yo'naltirish va qaysi kasblar:** bolaning **nuqsoniga emas, imkoniyatiga** qarayman. Sog'lig'iga mos kasblar: **IT, dasturlash, dizayn, kontent yaratish, qo'l hunarmandchiligi, tarjimonlik** kabi masofaviy va ijodiy kasblar. Bugun texnologiya tufayli deyarli har bir kasb moslashtirilishi mumkin. Maqsad — bola jamiyatning to'laqonli, mustaqil a'zosi bo'lishi.
+
+## C. Jamoa, hamkorlik, birdamlik, nizolar
+
+**Jamoada ishlash uchun:** jamoaviy loyihalar (har bola rol oladi), guruhli tanlovlar, "O'quvchilar kengashi", sport va "Turon teatr".
+
+**Birdamlik va jipslik uchun:** umumiy maqsad, jamoaviy o'yinlar va timbilding treninglar, tadbirlarni birgalikda tashkil qilish, har bir bolaning hissasini qadrlash.
+
+**Nizolarni hal qilishda:** ikkala tomonni alohida tinglayman, ayblamayman, tinch muloqotga chaqiraman, kerak bo'lsa psixologni jalb qilaman; maqsad — kechirim va o'zaro tushunish. Tamoyilim: "Yakka kuch — bir, jamoa kuchi — son-sanoqsiz."
+
+## D. Motivatsiya — qiziqmaydigan o'quvchilar (+ AI)
+
+"Qiziqmaydigan o'quvchi yo'q, hali o'z qiziqishini topmagan o'quvchi bor." **1-qadam:** psixolog bilan sababni aniqlash. **2-qadam:** dars va klublarni interaktiv, qiziqarli qilish. **3-qadam:** muvaffaqiyatli insonlar bilan uchrashuv, bilim va kasbning real foydasini ko'rsatish. **4-qadam:** kichik muvaffaqiyat orqali birinchi g'alaba zavqini his qildirish.
+
+**AI bo'yicha:** sun'iy intellektdan shaxsiy o'quv materiallari, qiziqarli taqdimot va kasb-test tayyorlashda foydalanaman — bu o'rganishni zamonaviy qiladi. Lekin AIni o'ylash o'rnini bosuvchi emas, **yordamchi vosita** sifatida o'rgataman.
+
+## E. Chidamlilik, moslashuvchanlik, tashabbuskorlik, qayta tayyorlov
+
+**Chidamlilik:** qiyinchilik — yakun emas, o'rganish imkoni; murakkab vazifalarni sabr bilan oxiriga yetkazishni rag'batlantiraman. **Moslashuvchanlik:** yangi texnologiya va sharoitda ishlashga undayman, "mini skill"larni targ'ib qilaman. **Tashabbuskorlik:** mas'uliyat va loyiha rahbarligini beraman. **Qayta tayyorlov:** **"umrbod o'rganish (lifelong learning)"** g'oyasini singdiraman — qayta tayyorlanishga doimo tayyor inson hech qachon ishsiz qolmaydi.
+
+## F. Qadriyatlar — halollik, qariyalarga hurmat, va'da, mehnat
+
+**Halollik va xiyonat qilmaslik:** halollik — eng oliy fazilat, halol rizq barakali; o'g'rilik/aldash/ko'chirma qoralanadi. Maktabning o'rni — o'quvchi bu qadriyatlarni dars, atrof-muhit va o'qituvchi o'rnagidan oladi. **Samarali mehnat:** kasb egalari bilan uchrashuv orqali. **Qariyalarga hurmat:** faxriylar bilan uchrashuv, g'amxo'rlik aksiyalari. **Va'daga vafo:** so'zida turish — insonning obro'si; o'zim o'rnak bo'laman.
+
+## G. Kasblar dunyosi (faktik javoblar)
+
+**Robotlashtirish tufayli yo'qolayotgan kasblar (5ta):** kassir, oddiy operator/ma'lumot kirituvchi, telemarketolog, pochtachi, oddiy buxgalter.
+
+**5ta yangi/dolzarb kasb:** sun'iy intellekt mutaxassisi, data analitik, kibrxavfsizlik mutaxassisi, SMM/raqamli marketolog, robototexnika muhandisi.
+
+**5ta eng daromadli kasb (bugun):** IT/dasturchi, AI va data science, kibrxavfsizlik, shifokor-jarroh, moliya/investitsiya tahlilchisi.
+
+**5ta kelajakda yaratilishi kutilayotgan kasb:** kosmik turizm operatori, AI-axloq nazoratchisi, genetik muhandis, VR dizayneri, "yashil" energiya mutaxassisi.
+
+**Masofaviy (onlayn) kasblar:** dasturchi, dizayner, kontent-kreator, onlayn o'qituvchi, tarjimon, SMM-menejer, copywriter.
+
+**Yo'qolmaydigan / uzoq muddatli kasblar:** shifokor, o'qituvchi, muhandis, oshpaz, qishloq xo'jaligi mutaxassisi. **Afzalligi:** barqaror talab. **Kamchiligi:** uzoq tayyorgarlik va doimiy malaka oshirish.
+
+**Qisqa muddatli daromad, istiqbolsiz kasblar:** modaga/texnologiyaga bog'liq oddiy ishlar. Bularni misol qilib, **uzoq istiqbolli, barqaror** kasb tanlash muhimligini tushuntiraman.
+
+**Ijodiy yondashuv talab qiladigan kasblar:** dizayn, arxitektura, reklama/marketing, kontent yaratish, san'at, muhandislik, IT. Asos: shablon yetarli emas — yangi g'oya raqobatda yutuqni belgilaydi.
+
+## H. Oilaviy/an'anaviy kasbni davom ettirish
+
+**Afzalliklari:** erta yoshdan kasb muhitida o'sish, tayyor tajriba/asbob/mijozlar bazasi, oilaviy biznes va merosning davomi, milliy hunarmandchilik saqlanadi. **Kamchiliklari:** bola majburlik ostida o'z qiziqishidan voz kechishi, salohiyati ochilmay qolishi, zamonaviylashmasa raqobatda ortda qolish. **Pozitsiyam:** qo'llab-quvvatlayman, **agar bu bolaning qiziqishiga mos kelsa**; aks holda dalil bilan ota-onaga tushuntiraman. Bola manfaati birinchi.
+
+## I. Milliy va zamonaviy kasblar
+
+**Milliy kasblar (hunarmandchilik, kulolchilik, kashtachilik):** afzalligi — meros saqlanadi, turizmda talab, brend bo'la oladi; kamchiligi — zamonaviylashmasa bozori torayadi. **Zamonaviy kasblar (IT, AI, dizayn):** afzalligi — yuqori daromad, global imkoniyat; kamchiligi — tez o'zgaradi. **Eng yaxshi yo'l — birlashtirish:** milliy hunarmandchilikni onlayn savdo va raqamli marketing bilan rivojlantirish. O'quvchilarni milliy ildizga sodiq, zamonaviy fikrlaydigan bo'lishga undayman.
+
+## J. Muammoli vaziyatlar
+
+**Qiz harbiy bo'lmoqchi, ota-ona qarshi:** qizning intilishini hurmat qilaman, qobiliyatini baholayman, ota-onaga ayollar uchun harbiy sohadagi imkoniyatlarni dalil bilan tushuntiraman, psixolog ishtirokida kelishaman. Bola orzusi birinchi.
+
+**Bola moda kasbini tanladi, ota-ona qarshi:** moda (dizayn, brending) — katta industriya; qobiliyatni test bilan tasdiqlayman, ota-onaga real istiqbol va daromadni ko'rsataman.
+
+**Test natijasi tanlagan kasbga mos emas:** panika qilmayman; bir nechta omilga qarab qayta baholayman; o'quvchi bilan suhbatlashaman (balki kasbni bilmagan); muqobil yo'nalishlarni ko'rsataman. Bitta test — yakuniy hukm emas.
+
+**Yevropa madaniyatiga qiziqadi, ota-ona milliy qadriyat:** muvozanat yarataman — boshqa madaniyatni o'rganish dunyoqarashni kengaytiradi, lekin milliy ildizga sodiqlik muhim; ota-onaga taqiqlash emas, yo'naltirish kerakligini tushuntiraman. Maqsad — milliy o'zligiga sodiq, dunyoga ochiq inson.
+
+**Pedagog/to'garak o'qituvchisi sustkashlik qiladi:** pedagog bilan suhbat (sabab + o'quvchi muhimligi); real jadval tuzaman; hal bo'lmasa direktor/pedkengash orqali; zarur bo'lsa boshqa o'qituvchiga biriktiraman yoki onlayn resurs topaman. O'quvchi tayyorgarligi to'xtamasligi kerak.
+
+**Korxonada passiv o'quvchi:** passivlik sababini aniqlayman; jarayonga faol jalb qilaman (savol, kichik topshiriq); keyin alohida suhbatlashib, qaysi soha unga qiziqroq ekanini topaman.
+
+## K. Loyiha va iqtidorni ommalashtirish
+
+O'quvchining loyihasini keng ommaga yetkazaman: **media va ijtimoiy tarmoqlarda** yoritish; tegishli **tanlov/festivallarga** yo'naltirish; maktab/tuman taqdimotlarida namoyish; natijani "Ijtimoiy portfolio"ga kiritish. Maqsad — mehnati e'tirofga sazovor bo'lib, boshqalarni ham ilhomlantirishi.
+
+## L. Tadbirlar tashkil etish
+
+**"Kelajak soati":** har hafta mavzu (kasblar, liderlik, iqtidor, qadriyatlar); muvaffaqiyatli insonlar/kasb egalarini taklif qilish; interaktiv o'yin, taqdimot, muhokama; o'quvchilarning o'z g'oyalarini taqdim etishi. Maqsad — kelajakka aniq maqsad shakllantirish.
+
+**Sport musobaqasi:** reja+nizom → moliyalashtirish va sharoit → jamoalarni shakllantirish → adolatli o'tkazish → g'oliblarni taqdirlash va mediada yoritish.
+
+**Milliy liboslar festivali:** o'quvchilar hududlar milliy liboslarini, ularning tarixi va ma'nosini namoyish etadi; podium-tanlov, mukofot, ota-onalarni jalb qilish, ijtimoiy tarmoqda yoritish.
+
+**"Zukko kitobxon" tanlovi:** belgilangan kitoblar bo'yicha savol-javob, asar tahlili, erkin fikr shartlari; bosqichma-bosqich; g'oliblarni rag'batlantirish. Maqsad — kitobxonlikni zavqli odatga aylantirish.
+
+**Zakovat o'yinini ijtimoiy tarmoqda yoritish:** jarayonni sifatli suratga/videoga olish → qiziqarli lavhalar, reels/post tayyorlash → rasmiy sahifalarda heshteg bilan joylashtirish → ishtirokchilarni teglab e'tibor jalb qilish.
+
+**Tarixiy obida ekskursiyasi:** tayyorgarlik (obida, ruxsat, transport, ota-ona roziligi, xavfsizlik) → jarayon (tarix va ahamiyatni qiziqarli tushuntirish, savol-javob) → yakun (muhokama, taassurot). Maqsad — vatanparvarlikni amaliy his qildirish.
+
+**Kasblar videolari qiziq emas:** format ishlamayapti — interaktivlikka o'taman: jonli kasb egalari bilan uchrashuv, korxona ekskursiyasi, amaliy mahorat darsi; o'quvchilarning o'zlariga video tayyorlatib tanlov. Faol ishtirokchi bo'lganda qiziqish paydo bo'ladi.
+
+## M. Xalqaro mehnat bozorida raqobatbardoshlik
+
+Raqobatbardosh mutaxassisda: **(1)** chuqur kasbiy bilim + amaliy mahorat; **(2) ingliz tili**; **(3)** raqamli savodxonlik va AIdan foydalanish; **(4) yumshoq ko'nikmalar** (muloqot, jamoada ishlash, muammo yechish, liderlik); **(5)** doimiy o'rganish va moslashuvchanlik; **(6)** xalqaro sertifikat va tajriba. O'quvchilarni klublar, kasbga yo'naltirish va "Prezident iqtidorli farzandlari" orqali shu sifatlarga tayyorlayman.
+
+## N. Tabiat va ekologik mehr
+
+O'quvchilarda tabiatga mehrni amaliyot orqali shakllantiraman: "Eco-schools" klubi, gul/daraxt ekish, "yashil burchak", hayvonlarga g'amxo'rlik (qushlar uchun donxona), tabiatga ekskursiyalar, ekologik film va tanlovlar. Tavsiyam: tabiat — umumiy uyimiz, uni asrash har birimizning burchimiz. Tabiatni sevgan bola — rahmdil va mas'uliyatli inson.
+
+## O. Ijtimoiy-psixologik qo'llab-quvvatlash (aniq fakt bilan)
+
+Har bir o'quvchining ruhiy holatiga e'tibor beraman — **psixologik barqarorlik o'qishning asosi**. **1-qadam:** psixolog bilan holatni kuzatish (so'rovnoma, suhbat). **2-qadam:** qiyin sharoitdagi (kam ta'minlangan, Ijtimoiy reyestrdagi) bolalarni aniqlab, alohida e'tibor berish. **3-qadam:** klub va jamoaga jalb qilib, yolg'izlikni bartaraf etish.
+
+**Aniq fakt:** PF-86 Farmonida **Ijtimoiy reyestrga** kiritilgan oilalar farzandlariga alohida e'tibor va imtiyozlar (xorijda o'qishda ustuvorlik) belgilangan. Men shunday o'quvchilarni qo'llab-quvvatlab, imkoniyatlardan teng foydalanishini ta'minlayman. Maqsad — hech bir bola e'tibordan chetda qolmasligi.
