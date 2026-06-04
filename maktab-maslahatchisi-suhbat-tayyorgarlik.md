@@ -469,3 +469,142 @@ Behbudiy · Cho'lpon · Fitrat · Avloniy · Abdulla Qodiriy · Munavvar Qori ·
 ---
 
 *Ushbu material "Maktab maslahatchisi" lavozimiga suhbatga tayyorgarlik uchun tuzilgan. Omad tilaymiz!*
+
+
+---
+
+# 🔥 AVVALGI IMTIHONDA TUSHGAN REAL SAVOLLAR + MUKAMMAL JAVOBLAR
+
+> **Manba:** @maktabmaslahatchisi_uz — 18-fevralda tushgan real suhbat savollari.
+> Bu savollar avvalgi imtihonda aynan tushgan, shuning uchun ularga alohida e'tibor bering. Eng ko'p **kasbga yo'naltirish** va **portfolio** mavzulari uchragan.
+
+## 1. O'quvchilarda ijtimoiy sohada ishlash uchun qanday ko'nikmalarni shakllantirish kerak?
+
+Ijtimoiy sohada muvaffaqiyatli ishlash uchun o'quvchida bir nechta muhim ko'nikma shakllanishi kerak. **Birinchidan, muloqot ko'nikmasi** — o'z fikrini aniq bayon qila olish va boshqalarni tinglay olish. **Ikkinchidan, jamoada ishlash** — boshqalar bilan kelishib, umumiy maqsad yo'lida ishlash. **Uchinchidan, empatiya** — o'zganing holatini tushunish. **To'rtinchidan, mas'uliyat va tashabbuskorlik**. **Beshinchidan, liderlik va nizolarni hal qilish** ko'nikmasi.
+
+Men bu ko'nikmalarni amaliyot orqali shakllantiraman: **"O'quvchilar kengashi"** faoliyati, jamoaviy loyihalar, **"Debat"** klubi, volontyorlik aksiyalari va tadbirlarni o'quvchilarning o'zlariga tashkil qildirish orqali. Chunki bu ko'nikmalar faqat amaliyotda mustahkamlanadi.
+
+## 2. O'quvchilarda vatanparvarlik ruhini tarbiyalash uchun qilinadigan ishlar
+
+Vatanparvarlik — quruq shior emas, amaliy his-tuyg'u, shuning uchun men buni amaliy faoliyat orqali tarbiyalayman. **Birinchidan**, **tarixiy obidalar va madaniy yodgorliklarga** ekskursiyalar. **Ikkinchidan**, **"Jadidlar izidan"** klubi orqali Behbudiy, Cho'lpon, Avloniy merosini o'rgatish. **Uchinchidan**, milliy bayramlar, davlat ramzlarini ulug'lash va vatan haqida kitobxonlik kechalari. **To'rtinchidan**, amaliy foydali ishlar — ko'kalamzorlashtirish, obodonlashtirish, faxriylarga yordam.
+
+Maqsadim — o'quvchida o'z xalqiga, tiliga va davlatiga **g'urur va mas'uliyat** tuyg'usini shakllantirish.
+
+## 3. 8–9-sinflarda o'quvchilarning aksariyati kollejga ketishni xohlaydi — siz nima qilasiz?
+
+Avvalo, kollej yoki kasb-hunarga intilishni men salbiy hodisa deb hisoblamayman — bu ham munosib yo'l. Lekin har bir o'quvchining tanlovini ongli bo'lishini ta'minlayman. **Birinchidan**, psixolog bilan ularning **qobiliyati va qiziqishini test** orqali aniqlayman. **Ikkinchidan**, akademik bilimga moyil, lekin "hamma ketyapti" deb kollejga intilayotganlar bilan alohida ishlayman. **Uchinchidan**, amaliy moyillarni to'g'ri kollej/texnikumga yo'naltiraman.
+
+Men "moda" emas, **bolaning haqiqiy qobiliyatiga** asoslanaman. Har bir o'quvchi o'z o'rnini topishi kerak.
+
+## 4. O'quvchilarni zamonaviy kasblarga tayyorlaydigan qaysi davlat siyosatlarini bilasiz?
+
+Bir qancha kuchli davlat siyosati amalga oshirilmoqda: **"Prezident iqtidorli farzandlari"** tashabbusi (PF-86); uning tarkibidagi **"Yorqin iste'dod"** loyihasi (PF-61); **"Raqamli avlod"** va **"Raqamli avlod qizlari"** tanlovi (IT, sun'iy intellekt, yashil iqtisodiyot); **IT Park** dasturlari. Bular PQ-277 va 776-son qaror asosida "Kelajak" markazlari orqali ham amalga oshiriladi. Maslahatchi sifatida men shu dasturlarni targ'ib qilib, o'quvchilarni zamonaviy kasblarga yo'naltiraman.
+
+## 5. O'quvchilarni ekskursiyalar va kasb egalari bilan uchrashuvni qanday tashkil qilasiz?
+
+**Tayyorgarlik bosqichi:** o'quvchilarning qiziqishini aniqlab, korxona/kasb egalari bilan oldindan kelishaman, sana va transport tashkil qilaman. **O'tkazish bosqichi:** ekskursiyada ish jarayonini ko'rsataman, uchrashuvda savol-javob o'tkazaman. **Yakuniy bosqich:** muhokama o'tkazaman ("Nima yoqdi? Bu kasbni tanlaysanmi?") va natijani **"Ijtimoiy portfolio"**ga kiritaman. Bunday tadbirlar kasbni amaliy va real tushunish imkonini beradi.
+
+## 6. 8–9-sinf o'quvchilarining aksariyati OTMga qiziqadi, kasb-hunarga emas — qanday yo'l tutasiz?
+
+Men kasb-hunarning ham obro'li ekanini amaliy dalillar bilan ko'rsataman. **Birinchidan**, muvaffaqiyatli **kasb egalari va tadbirkorlar** bilan uchrashuvlar. **Ikkinchidan**, zamonaviy texnikum va kollejlarga **ekskursiya**. **Uchinchidan**, **mehnat bozori statistikasi** — ko'p kasb-hunarga talab yuqori va daromadi yaxshi. **To'rtinchidan**, kasb-hunar keyinchalik oliy ta'limga ham yo'l ochishini tushuntiraman. Hech kimni majburlamayman — faqat to'liq ma'lumot beraman, OTM yagona yo'l emas.
+
+## 7. Maktabda "O'zbekistonlik" tuyg'usini shakllantirishda maktabning roli
+
+Maktab — bu tuyg'uning shakllanadigan **asosiy o'chog'i va poydevori**. Maktab quyidagilar orqali bu tuyg'uni shakllantiradi: milliy tarix, til va adabiyotni chuqur o'rgatish; milliy qadriyatlar va an'analarni singdirish; davlat ramzlari, bayramlar va vatanparvarlik tadbirlari; "Jadidlar izidan" klublari va kitobxonlik orqali ajdodlar merosi. Maslahatchi sifatida men bu jarayonni faollashtiraman — o'quvchida o'z yurtiga **mansublik, g'urur va daxldorlik** tuyg'usini uyg'otaman.
+
+## 8. Kasb tanlashda o'quvchiga kerak bo'ladigan muhim ko'nikma nima? Fikringizni asoslang.
+
+Eng muhim ko'nikma — **o'zini-o'zi anglash (self-awareness)**, ya'ni o'quvchining o'z qiziqishi, qobiliyati, kuchli/zaif tomonlari va qadriyatlarini bilishi. **Asos:** agar o'quvchi o'zini tushunmasa, hatto eng obro'li kasb ham unga muvaffaqiyat keltirmaydi — chunki u o'ziga mos kelmaydi. Aksincha, o'zini bilgan bola sevgan ishini qiladi va yuksak natijaga erishadi. Shuning uchun men kasbga yo'naltirishni o'quvchini o'zini anglashga o'rgatishdan boshlayman.
+
+## 9. Davlat ramzlariga hurmat tuyg'usini shakllantirishda nima qilasiz?
+
+Davlat ramzlari — milliy mustaqillik timsoli. **Birinchidan**, har bir ramzning **ma'nosi va tarixini** tushuntiraman. **Ikkinchidan**, rasmiy marosimlarni (bayroq ko'tarish, madhiyani birga ijro etish) tantanavor o'tkazaman. **Uchinchidan**, "Davlat ramzlari kuni", viktorina va tanlovlar. **To'rtinchidan**, o'zim shaxsan o'rnak bo'laman. Maqsadim — ramzlarga hurmat o'quvchining qalbidan, ongli his-tuyg'udan kelib chiqishi.
+
+## 10. 9-sinf o'quvchilari faqat oliy ta'limga topshirmoqchi — kasb-hunarga yo'naltirish kerakmi?
+
+Muhimi — **muvozanat va ongli tanlov**. Oliy ta'lim istagini qo'llab-quvvatlayman, lekin har bolaning qobiliyatini ob'ektiv baholayman: akademik moyillarni oliy ta'limga, amaliy moyillarni esa kasb-hunar va texnikumga yo'naltiraman, ularning ham istiqbolli yo'l ekanini ko'rsataman. Hech qachon majburlamayman, faqat dalil beraman. Noto'g'ri tanlangan oliy ta'limdan ko'ra, to'g'ri tanlangan kasb-hunar afzalroq.
+
+## 11. Zamonaviy kasblarga yo'naltiruvchi qaysi davlat tashkilotlarini bilasiz?
+
+**Ixtisoslashtirilgan ta'lim muassasalari agentligi**, **"Kelajak" markazlari**, **IT Park**, **"El-yurt umidi" jamg'armasi**, Yoshlar ishlari agentligi, "Digital Generation Uzbekistan" va Bolalar kontentini rivojlantirish markazi. Men shu tashkilotlar bilan hamkorlik qilib, o'quvchilarni ularning dastur va imkoniyatlaridan foydalanishga yo'naltiraman.
+
+## 12. Bola matematikaga qiziqadi, ota-onasi shifokor bo'lishini xohlaydi — qanday yo'l tutasiz?
+
+**1-qadam:** bola bilan suhbatlashib, matematik qobiliyatini **test va natijalar** bilan tasdiqlayman. **2-qadam:** ota-onani ayblamasdan, ob'ektiv ma'lumotni tushuntiraman. **3-qadam:** matematika asosidagi zamonaviy obro'li kasblarni (IT, data science, sun'iy intellekt, muhandislik, moliya) ko'rsataman. **4-qadam:** psixolog ishtirokida uch tomon kelishuvga erishamiz. Tamoyilim — **bolaning manfaati birinchi o'rinda**, ish zo'rlik emas, ishontirish bilan.
+
+## 13. Ijtimoiy portfolio qanday yaratasiz?
+
+"Ijtimoiy portfolio" — o'quvchining qo'shimcha ta'limga jalbini aks ettiruvchi rasmiy elektron modul. **Birinchidan**, har o'quvchi uchun "Kelajak" platformasida shaxsiy profil ochaman. **Ikkinchidan**, unga klub/to'garaklarga jalbi, tanlov va tadbirlardagi ishtiroki, yutuqlari, sertifikatlarini tizimli kiritaman. **Uchinchidan**, muntazam yangilab turaman. Bu orqali har o'quvchining rivojlanishini kuzatib, hisobotlarni tayyorlayman.
+
+## 14. O'quvchilarga "O'zbekiston fuqarosi" tushunchasini qanday singdirasiz?
+
+**Birinchidan**, Konstitutsiya asosida fuqaroning **huquq va burchlarini** sodda tilda tushuntiraman. **Ikkinchidan**, fuqarolik **mas'uliyati** (qonunga hurmat, jamiyatga foyda) g'oyalarini singdiraman. **Uchinchidan**, amaliy faollik — "O'quvchilar kengashi" saylovlari, volontyorlik. **To'rtinchidan**, debat va munozaralar orqali faol fuqarolik pozitsiyasini shakllantiraman. Maqsad — o'quvchi o'zini davlatning faol va daxldor a'zosi deb his qilishi.
+
+## 15. Maslahatchi kim va qanday rejalaringiz bor?
+
+Maktab maslahatchisi — "Kelajak" markazining maqsadlarini maktabda amalga oshiruvchi, o'quvchilarni qo'shimcha ta'lim, to'garak va tashabbuslarga jalb qiluvchi mutaxassis (ikki rahbarga — markaz va direktorga bo'ysunadi). **Rejalarim:** o'quvchilar bazasini tuzish; 7 ta klubni ishga tushirish va "O'quvchilar kengashi" saylovi; 7–9-sinflarda kasbga yo'naltirish; iqtidorlilarni "Prezident iqtidorli farzandlari" dasturi orqali nufuzli oliygohlarga tayyorlash. Yakuniy maqsad — qo'shimcha ta'limga jalb madaniyatini yaratish.
+
+## 16. Kasbga yo'naltirishdagi eng muhim omil
+
+Eng muhim omil — **o'quvchining individual qiziqishi va qobiliyati**. Ota-ona xohishi, moda yoki daromad — ikkilamchi omillar. Agar kasb bolaning ichki qiziqishiga mos kelmasa, u na baxtli, na muvaffaqiyatli bo'ladi. Men avval psixolog bilan o'quvchining qiziqishi, qobiliyati va temperamentini aniqlayman, keyin **mehnat bozori talabini** ham qo'shib yo'naltiraman. Lekin asos — har doim bolaning o'zi.
+
+## 17. Oliy ta'limga qiziqishi yuqori, ammo kasbga qiziqishi past — qanday yo'l tutasiz?
+
+Men o'quvchiga **oliy ta'lim o'z-o'zidan maqsad emas, muayyan kasbga olib boruvchi yo'l** ekanini tushuntiraman. **1-qadam:** "Qaysi sohada o'qiysan va u qaysi kasbga olib keladi?" deb fikrlashga undayman. **2-qadam:** oliy ta'lim yo'nalishini aniq kasb maqsadi bilan bog'layman. **3-qadam:** kasb egalari bilan uchrashuv orqali kasbga qiziqishini uyg'otaman. Maqsad — oliy ta'lim istagini mazmun bilan to'ldirish. Maqsadsiz diplom — yo'qotilgan yillar.
+
+## 18. 8–9-sinf o'quvchilarida portfolio shakllantirish
+
+Portfolioni **erta boshlash** — kelajakdagi muvaffaqiyat poydevori. **Birinchidan**, yutuqlarni to'play boraman (tanlov, olimpiada, sertifikat). **Ikkinchidan**, klub va loyiha faoliyatini hujjatlashtraman. **Uchinchidan**, o'quvchining maqsadlarini belgilayman. Bu portfolio oliygohga hujjat topshirishda, grantда va "Prezident iqtidorli farzandlari"ga kirishda asqotadi. Erta tayyorgarlik — kech qolgandan afzal.
+
+## 19. 8–9-sinflar hammasi oliy ta'limga kirmoqchi — qanday qilib kasbga qiziqtirasiz?
+
+Men o'quvchilarni kasb-hunar dunyosi bilan amaliy va qiziqarli tanishtiraman: **"Kasblar haftaligi"** tashkil qilaman; sohada muvaffaqiyatli **kasb egalari bilan uchrashuv**; korxonalarga **ekskursiya**; **mehnat bozori statistikasi**. Oliy ta'lim istagiga qarshi turmayman, balki ufqini kengaytiraman — toki bola barcha imkoniyatlarni ko'rib, ongli tanlov qilsin. Ba'zan bola kasb-hunar olamini bilmagani uchun faqat OTMga intiladi.
+
+## 20. O'quvchilarning shaxsiy portfoliosini tuzishda qanday yordam berasiz?
+
+Men har o'quvchiga shaxsiy "vizit kartasini" yaratishda yordam beraman. **Birinchidan**, uning kuchli tomonlari va yutuqlarini aniqlaymiz. **Ikkinchidan**, **CV, motivatsion xat** yozish va sertifikatlarni tizimlashtirishga o'rgataman. **Uchinchidan**, maqsadlarini kiritamiz. **To'rtinchidan**, muntazam yangilashni o'rgataman. Bu portfolio oliygohga kirish, grant va tanlovlarda o'zini kuchli taqdim etish imkonini beradi.
+
+## 21. To'garak bilan klubning farqi?
+
+**To'garak** — ko'proq **muntazam, o'quv-mashg'ulot** xarakteridagi faoliyat; aniq dastur, jadval va **rahbar** bo'ladi, muayyan **ko'nikma o'rgatiladi** (masalan, matematika to'garagi). **Klub** — o'quvchilarning **qiziqishi asosida, erkinroq, tashabbusga** yo'naltirilgan jamoa; a'zolar o'zlari faollik ko'rsatadi (masalan, "Debat", "Eco-schools"). Ya'ni to'garakda **o'rgatish**, klubda **tashabbus** ustun. Ikkalasining maqsadi bir — bo'sh vaqtni mazmunli tashkil qilish va iqtidorni ochish.
+
+## 22. Kasbga yo'naltirishda mahalliy mehnat bozorining afzallik va kamchiliklari?
+
+**Afzalliklari:** o'quvchi hududidagi real talabni biladi, ishga joylashishi oson; oilasiga yaqin; mahalliy iqtisodiyotga hissa. **Kamchiliklari:** tor doirada cheklanib qolishi; global/yangi kasblarni ko'rmasligi; bozor o'zgarsa, kasbsiz qolishi mumkin. Shuning uchun men muvozanat saqlayman — mahalliy imkoniyatlarni ham, **global tendensiyalarni** ham ko'rsataman. Bola ham bugungi talabni, ham ertangi imkoniyatni ko'ra olishi kerak.
+
+## 23. O'quvchilarda mas'uliyatlilik hissini shakllantirish uchun nimalar qilasiz?
+
+Mas'uliyat amaliyotda shakllanadi. **Birinchidan**, aniq **vazifa va rol** beraman ("O'quvchilar kengashi", loyiha rahbarligi). **Ikkinchidan**, kichik mas'uliyatdan boshlayman, asta kattalashtiraman. **Uchinchidan**, javobgarlikni his qilishga o'rgataman, natijani u bilan tahlil qilaman. **To'rtinchidan**, muvaffaqiyatni rag'batlantiraman, xatoni saboq deb ko'rsataman. Ishonch berilgan bola mas'uliyatni o'rganadi. Mas'uliyatli o'quvchi — kelajakda mas'uliyatli fuqaro.
+
+## 24. "Prezident iqtidorli farzandlari" o'quvchilarga testlarni qanday tashkil qilasiz?
+
+Men **MOCK (sinov) imtihonlar** tashkil qilaman. **Birinchidan**, ularni **Prezident va ixtisoslashtirilgan maktablar maslahatchilari bilan hamkorlikda** o'tkazaman. **Ikkinchidan**, **real xalqaro imtihon formatida** (SAT, IELTS, fan olimpiadalari) tuzaman. **Uchinchidan**, natija asosida kuchli/zaif tomonni aniqlab, individual reja tuzaman. **To'rtinchidan**, natijalarni platformaga kiritib, rivojlanishni kuzataman. Maqsad — o'quvchini real imtihonga eng yaqin sharoitda sinab, ishonchini oshirish.
+
+## 25. Maktabda to'garaklar faqat nomiga ishlamoqda — yaxshilash uchun nima qilasiz?
+
+**1-qadam — sababni aniqlash:** dastur qiziqarsizmi, rahbar malakasizmi, jadval noqulaymi? **2-qadam — mazmunni yangilash:** dasturni qiziqarli va zamonaviy qilaman. **3-qadam — malakali rahbar** tayinlayman. **4-qadam — natijaga yo'naltirish:** to'garakni tanlov/festival/loyihaga yo'naltiraman. **5-qadam — motivatsiya va tahlil:** mediada yoritaman, faollarni rag'batlantiraman, doimiy tahlil qilaman. Maqsad — to'garak "qog'ozda" emas, real natija beradigan maydonga aylanishi.
+
+## 26. "Yashilsevar" (ekologik) tushunchani maktabda qanday tadbiq qilasiz?
+
+**Birinchidan**, **"Eco-schools Uzbekistan"** klubini tashkil qilaman. **Ikkinchidan**, amaliy aksiyalar: **daraxt ekish** (ko'kalamzorlashtirish), **chiqindilarni qayta ishlash (recycling)**, suv va energiya tejash. **Uchinchidan**, "yashil burchak", ekologik tanlov va plakat ko'riklari. **To'rtinchidan**, o'quvchilarni "Raqamli avlod qizlari"dagi "Iqlim o'zgarishi" va "Yashil iqtisodiyot" yo'nalishlarida loyihaga undayman. Maqsad — tabiatga mas'uliyat va mehr tuyg'usini shakllantirish.
+
+## 27–28. Kasblar haftaligini qanday o'tkazasiz?
+
+**Tayyorgarlik:** haftalik rejasi va ssenariysini tuzaman, har kuni bir kasb yo'nalishiga bag'ishlanadi. **Har kungi tadbirlar:** kasb egalari bilan uchrashuv; korxonalarga ekskursiya; mahorat darslari; kasbga oid film namoyishi. **Yakuniy kun:** o'quvchilar orzu kasbini taqdimot/tanlov ko'rinishida namoyish etadi ("Men kim bo'laman?" loyihasi). **Yakunlash:** mediada yoritaman, natijalarni "Ijtimoiy portfolio"ga kiritaman va tahlil qilaman. Bunday hafta kasblar haqida keng va real tasavvur uyg'otadi.
+
+## 29. Iqtidorli o'quvchining bilimi pasayib ketdi — qanday yo'l tutasiz?
+
+**1-qadam — sababni aniqlash:** psixolog bilan birga sababini topaman (oilaviy muammo, sog'liq, motivatsiya, charchoq, do'stlar ta'siri). **2-qadam — individual qo'llab-quvvatlash:** sababga qarab reja tuzaman. **3-qadam — ota-ona bilan ishlash.** **4-qadam — motivatsiya:** yangi maqsad va rag'bat beraman (tanlov, oliygoh orzusi). **5-qadam — kuzatuv:** holatini doimiy kuzatib, kichik yutuqlarini rag'batlantiraman. Maqsad — iqtidorni saqlab qolish. Har bir iqtidorli o'quvchi — mamlakatning kelajagi.
+
+---
+
+## 📊 Real savollar tahlili — tendensiya
+
+| Mavzu | Taxminiy savollar soni |
+|-------|:---:|
+| Kasbga yo'naltirish (OTM vs kasb-hunar) | ~10 ta |
+| Vatanparvarlik / O'zbekistonlik / ramzlar | ~4 ta |
+| Portfolio (ijtimoiy + shaxsiy) | ~4 ta |
+| To'garak/klub faoliyati | ~3 ta |
+
+**Xulosa:** eng ko'p **kasbga yo'naltirish** va **portfolio** savollari tushgan — shularga alohida tayyorgarlik ko'ring.
