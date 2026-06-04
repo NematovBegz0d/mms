@@ -608,3 +608,114 @@ Men **MOCK (sinov) imtihonlar** tashkil qilaman. **Birinchidan**, ularni **Prezi
 | To'garak/klub faoliyati | ~3 ta |
 
 **Xulosa:** eng ko'p **kasbga yo'naltirish** va **portfolio** savollari tushgan — shularga alohida tayyorgarlik ko'ring.
+
+
+---
+
+# 🔥 O'TGAN YIL TUSHGAN REAL SAVOLLAR (2-to'plam) — MUKAMMAL JAVOBLAR
+
+> Bu savollar ham o'tgan yilgi suhbatda tushgan. Eng ko'p **kasbga yo'naltirish**, **vatanparvarlik/milliy o'zlik**, **liderlik** va **ekologik tarbiya** mavzulari uchragan.
+
+## 1. "Raqamli avlod qizlari" klubida o'quvchilar soni kamayib ketdi — qanday yo'l tutasiz?
+
+**1-qadam — sababni aniqlash:** nega qizlar kamayganini bilib olaman (qiziqarsizlik, vaqt noqulayligi, natija ko'rinmasligi, ota-ona qo'llab-quvvatlamasligi). **2-qadam — qiziqishni qaytarish:** **InfoWeek**lar, IT Park rezidentlari va muvaffaqiyatli ayollar bilan **mahorat darslari**. **3-qadam — amaliy natija:** qizlarni real loyiha (startap) tayyorlashga undab, tanlovda ishtirok ettiraman. **4-qadam — targ'ibot:** klub yutuqlarini mediada yoritib, yangi a'zolar jalb qilaman. Maqsad — klubni qizlar o'zlari kelishni istaydigan qiziqarli maydonga aylantirish.
+
+## 2. O'quvchilarda jamoa bilan ishlash ko'nikmasini rivojlantirish uchun nima qilasiz?
+
+Amaliyot orqali rivojlantiraman: **jamoaviy loyihalar** (har bola rol oladi); **"Debat"** va guruhli tanlovlar; **"O'quvchilar kengashi"** va klublar orqali jamoaviy mas'uliyat; sport va "Turon teatr" kabi jamoaviy faoliyatlar. O'quvchilarga "Yakka kuch — bir, jamoa kuchi — son-sanoqsiz" tamoyilini o'rgataman. Jamoada ishlay oladigan bola har qanday muhitda muvaffaqiyatli bo'ladi.
+
+## 3. Zamonaviy kasblarni bir nechasini o'rganib qo'yish nima uchun kerak? (Mini skill)
+
+Bozor tez o'zgaradi — ba'zi kasblar yo'qoladi, yangilari paydo bo'ladi. **Birinchidan**, bir nechta ko'nikma insonni **moslashuvchan** qiladi. **Ikkinchidan**, qo'shimcha ko'nikmalar (asosiy kasb + dasturlash + til + dizayn) **raqobatbardoshlik** beradi. **Uchinchidan**, yangi imkoniyat va qo'shimcha daromad. Misol: bugun shifokor ham, o'qituvchi ham raqamli savodxonlik va AIni bilishi kerak. Men o'quvchilarni ko'p qirrali bo'lish va doimiy o'rganishga undayman.
+
+## 4. O'quvchilarga fidoyilik va Vatanni himoya qilish ruhini qanday singdirasiz?
+
+**Birinchidan**, vatan himoyachilari, faxriylar va qahramonlar bilan **uchrashuvlar**. **Ikkinchidan**, milliy qahramonlar (Jaloliddin Manguberdi, Amir Temur) va jadid bobolar fidoyiligi haqida hikoyalar. **Uchinchidan**, harbiy-vatanparvarlik tadbirlari, "Vatan himoyachisi kuni". **To'rtinchidan**, amaliy fidoyilik — jamoatchilik ishlari, faxriylarga g'amxo'rlik. Maqsad — o'quvchi vatanni himoya qilish faqat harbiy burch emas, har kungi halol mehnat ekanini tushunishi.
+
+## 5. O'quvchilarni litsey va kasb-hunarga yo'naltirish uchun qanday ishlar qilasiz?
+
+**Birinchidan**, psixolog bilan qiziqish va qobiliyatni **test** orqali aniqlayman. **Ikkinchidan**, litsey, kasb-hunar maktabi va texnikumlar haqida **to'liq ma'lumot** beraman. **Uchinchidan**, ularni shu muassasalarga **ekskursiya**, bitiruvchilar bilan uchrashuv. **To'rtinchidan**, har o'quvchi uchun **shaxsiy tavsiya** va ota-ona bilan muhokama. Akademik moyillarni litseyga, amaliy moyillarni kasb-hunarga yo'naltiraman.
+
+## 6. Sinfda yetakchi (lider) o'quvchilarni qanday saylab olasiz?
+
+Liderlikni amaliy fazilatlarga qarab aniqlayman. **Birinchidan**, o'quvchilarni kuzataman (kim tashabbuskor, kim jamoani uyushtiradi). **Ikkinchidan**, **"O'quvchilar kengashi" saylovini** demokratik o'tkazaman. **Uchinchidan**, kichik vazifalar berib, amaliyotda sinab ko'raman. **To'rtinchidan**, mezonlar: tashabbuskorlik, mas'uliyat, muloqot, adolat. Men har bolada liderlik salohiyatini ko'raman — lider tug'ma emas, tarbiyalanadigan fazilat.
+
+## 7. Maslahatchi kim, istiqbolli rejangiz?
+
+Maktab maslahatchisi — "Kelajak" markazining maqsadlarini maktabda amalga oshiruvchi, o'quvchilarni qo'shimcha ta'lim, to'garak va tashabbuslarga jalb qiluvchi mutaxassis (ikki rahbarga bo'ysunadi). **Rejam:** o'quvchilar bazasini tuzish; 7 ta klub + "O'quvchilar kengashi" saylovi; kasbga yo'naltirish; iqtidorlilarni "Prezident iqtidorli farzandlari" orqali nufuzli oliygohlarga tayyorlash; menejerlik sertifikatini olish. Maqsad — qo'shimcha ta'limga jalb madaniyatini yaratish.
+
+## 8. Sinfda nutqida muammo bor o'quvchi bilan qanday ishlaysiz?
+
+**Birinchidan**, **psixolog va logoped** bilan sababini aniqlayman. **Ikkinchidan**, **bosqichma-bosqich** yondashaman (avval kichik guruhda, keyin kattaroq jamoada). **Uchinchidan**, "Debat" klubi va notiqlik mashg'ulotlariga jalb qilaman. **To'rtinchidan**, har kichik yutug'ini **rag'batlantiraman**, kulish/mensimaslikka yo'l qo'ymayman. Maqsad — o'ziga ishonch uyg'otish. Ishonch paydo bo'lsa, nutq ham yaxshilanadi.
+
+## 9. O'quvchilarda vatanga muhabbat va sodiqlik ruhini tarbiyalashda nima qilasiz?
+
+**Birinchidan**, yurtimizning tarixi, madaniyati va tabiati bilan tanishtiraman (ekskursiyalar). **Ikkinchidan**, milliy qadriyatlar, bayramlar va an'analarni singdiraman. **Uchinchidan**, fidoyilik ko'rsatgan ajdodlar va zamondoshlar misolini keltiraman. **To'rtinchidan**, amaliy ezgu ishlarga jalb qilaman. Maqsad — o'quvchi vatan ravnaqi uchun mas'uliyat va sodiqlik his qilishi. Haqiqiy vatanparvarlik — yurt uchun halol mehnat.
+
+## 10. Nega aynan bu kasbni tanladingiz, nima sabab bo'ldi? (shaxsiy — to'ldiring)
+
+Men bu lavozimni ongli tanladim. **Birinchi sabab** — yoshlar bilan ishlashni va ularning rivojlanishiga hissa qo'shishni sevaman. **Ikkinchi sabab** — bu lavozim o'quvchilar kelajagiga bevosita ta'sir qilish imkonini beradi. **Uchinchi sabab** — "Prezident iqtidorli farzandlari" kabi davlat tashabbuslarining bir qismi bo'lish, mamlakat inson kapitaliga hissa qo'shish men uchun faxr. Men buni shunchaki kasb emas, **maqsad va missiya** deb bilaman. *(Shaxsiy hayotiy misol bilan boyiting.)*
+
+## 11. 9-sinf o'quvchisi akademik bilimga ega, lekin jamoa oldida gapirishdan qo'rqadi — nima yo'l tutasiz?
+
+**Birinchidan**, psixolog bilan qo'rquvning sababini aniqlayman. **Ikkinchidan**, **bosqichma-bosqich** ishonch shakllantiraman (kichik guruh → juftlik → katta auditoriya). **Uchinchidan**, "Debat" klubi va taqdimot mashg'ulotlariga jalb qilaman. **To'rtinchidan**, kichik muvaffaqiyatlarini rag'batlantiraman. Maqsad — iqtidorli bolaning bilimi qo'rquv ostida ko'milib qolmasin. Bilim + ishonch = muvaffaqiyat.
+
+## 12. O'quvchilar chet elda o'qish istagini bildirdi — nima maslahat berasiz?
+
+Bu ezgu istakni to'liq qo'llab-quvvatlayman. **Birinchidan**, darajasini baholab, mos oliygohni aniqlayman. **Ikkinchidan**, **til tayyorgarligi** (IELTS, TOEFL, SAT). **Uchinchidan**, **"Prezident iqtidorli farzandlari"** va **"El-yurt umidi"** imkoniyatlarini (TOP-100 grant, kvota) tushuntiraman. **To'rtinchidan**, hujjat, motivatsion xat va grant izlashda hamrohlik. **Beshinchidan**, MOCK imtihonlar. Maslahatim: "Orzu qil, lekin tizimli tayyorlan." Orzuni real rejaga aylantirishga yordam beraman.
+
+## 13. Internet va ijtimoiy tarmoqlardagi kasblarni tanlashga qanday ko'mak berasiz?
+
+Internet yangi kasblar (SMM, kontent-kreator, dasturchi, dizayner) olamini ochdi. **Birinchidan**, bu kasblar haqida to'liq va real ma'lumot beraman. **Ikkinchidan**, ishonchli onlayn o'quv resurslarini tavsiya qilaman. **Uchinchidan**, internetdan **iste'molchi emas, ijodkor/mutaxassis** sifatida foydalanishga o'rgataman. **To'rtinchidan**, **media-savodxonlik** va xavfsizlikni o'rgataman. Maqsad — internet vaqt o'tkazish emas, kasb va daromad manbai bo'lishi.
+
+## 14. Fidoyilik va vatanga muhabbat g'oyalarini o'quvchilarga qanday singdirasiz?
+
+Nazariy va'z bilan emas, his-tuyg'u va amaliyot orqali. **Birinchidan**, **"Jadidlar izidan"** klubi orqali xalq uchun jonini fido qilgan bobolar (Behbudiy, Fitrat, Cho'lpon). **Ikkinchidan**, vatan himoyachilari va faxriylar bilan uchrashuvlar. **Uchinchidan**, tarixiy joylarga sayohat, milliy marosimlar. **To'rtinchidan**, amaliy ezgu ishlar. Maqsad — vatanga muhabbat chuqur, samimiy va amaliy bo'lishi.
+
+## 15. An'anaviy kasblar (novvoy, hunarmand, oshpaz) — kamchilik va afzalliklari?
+
+**Afzalliklari:** doimiy **talab**; **mustaqil ish** (o'z biznesi) imkoni; milliy **an'ana va merosni** saqlaydi; tez daromad va amaliy ko'nikma. **Kamchiliklari:** jismoniy mehnat ko'p; ba'zan noto'g'ri "past" deb baholanadi; texnologiya bilan yangilanmasa, raqobatda qiyinchilik. Men ta'kidlaymanki, har bir halol kasb sharafli. Bugun zamonaviy oshpaz (chef) yuqori daromad oladi, hatto xalqaro mashhur bo'ladi. Muhimi — kasbni mahorat va ishtiyoq bilan egallash.
+
+## 16. Milliy o'zlikni anglashda maktab tarbiyasining o'rni? (aniq fakt va misollar bilan)
+
+Maktab — milliy o'zlikni anglashning asosiy maskani. **Ona tili va adabiyot** orqali (Navoiy, Qodiriy, Cho'lpon); **tarix** orqali (Amir Temur, Mirzo Ulug'bek, Al-Xorazmiy); milliy qadriyatlar va bayramlar (Navro'z) orqali. **Aniq misol:** "Jadidlar izidan" tanlovida o'quvchilar Behbudiy va Fitrat merosini o'rganadi; Registon yoki Ichan qal'aga ekskursiya o'quvchida "men shu buyuk xalqning vorisiman" degan g'ururni uyg'otadi. Maslahatchi sifatida men bu jarayonni klublar va tadbirlar orqali faollashtiraman. Milliy o'zligini anglagan inson — ildizi mustahkam daraxtdir.
+
+## 17. Ekologik loyiha maktabda o'tkazishingiz kerak — nima qilasiz?
+
+**1-qadam — muammoni aniqlash:** masalan, ko'p plastik chiqindi yoki kam ko'kalamzorlik. **2-qadam — eko-kengash tuzish.** **3-qadam — reja va ssenariy.** **4-qadam — amaliy harakat:** daraxt ekish, recycling, "yashil burchak", energiya tejash. **5-qadam — yoritish va tahlil.** Loyihani **"Eco-schools Uzbekistan"** klubi orqali yuritaman, o'quvchilarni "Raqamli avlod qizlari"dagi ekologik yo'nalishlarga ham jalb qilaman. Maqsad — nazariya emas, real natija.
+
+## 18. O'quvchilarda ekologik tarbiyani o'tkazishingiz kerak — nima qilasiz?
+
+**Birinchidan**, **"Eco-schools Uzbekistan"** klubini tashkil qilaman. **Ikkinchidan**, amaliy mashg'ulotlar: ko'kalamzorlashtirish, recycling, suv/energiya tejash. **Uchinchidan**, ekologik tanlovlar, plakat ko'riklari, film namoyishlari. **To'rtinchidan**, tabiatga ekskursiyalar. **Beshinchidan**, kundalik odatlarni o'zgartirish (chiroqni o'chirish, suvni tejash, axlatni joyiga tashlash). Maqsad — ekologik ong o'quvchining kundalik odatiga aylanishi.
+
+## 19. Ijtimoiy tarmoqlar va internetning kasb tanlashdagi ahamiyati — maslahatchining harakati?
+
+Internet ham imkoniyat, ham xavf manbai; maslahatchining roli — bu kuchni to'g'ri yo'naltirish. **Ahamiyati:** o'quvchi yangi kasblarni ko'radi, mutaxassislar bilan tanishadi, onlayn o'qiydi. **Harakatlarim:** ishonchli kasb-axborot resurslari va onlayn platformalarni ko'rsatish; **media-savodxonlik** (soxta "oson pul"dan ogohlantirish); internetdan ijodkor sifatida foydalanishga undash; muvaffaqiyatli kasb egalari bilan onlayn uchrashuvlar. Maqsad — internetni "kelajak qurish" vositasiga aylantirish.
+
+## 20. O'quvchi xorijiy oliygohda o'qishni xohlayapti — maslahatchi sifatida ish rejangiz?
+
+**1-bosqich (baholash):** bilim, qiziqish, moliyaviy imkoniyat; mos oliygoh tanlash. **2-bosqich (til):** IELTS/TOEFL/SAT. **3-bosqich (akademik):** fan o'qituvchisiga biriktirish, MOCK imtihonlar. **4-bosqich (imkoniyat):** "Prezident iqtidorli farzandlari", "El-yurt umidi" kvotalari, TOP-100 grantlari. **5-bosqich (hujjat):** motivatsion xat, portfolio, ariza. **6-bosqich (kuzatuv):** platformada kuzatish. Maqsad — o'quvchini nufuzli oliygohga **grant asosida** kirgizish.
+
+## 21. Sinfda yetakchi/lider yo'q — qanday qilib lider aniqlaysiz?
+
+Aslida "lider yo'q" sinf bo'lmaydi — salohiyat ochilmagan, xolos. **Birinchidan**, turli vaziyatlarda kuzataman. **Ikkinchidan**, har bolaga navbatma-navbat kichik vazifa/rol beraman. **Uchinchidan**, liderlik treninglari va o'yinlar. **To'rtinchidan**, demokratik saylov. Men bitta lider qidirmayman, har bolada liderlik fazilatlarini rivojlantiraman. Liderlik — tarbiyalanadigan ko'nikma. Vazifam — uxlab yotgan salohiyatni uyg'otish.
+
+## 22. O'quvchilarda mustaqillik, mehnat va qadr tushunchasini qanday kuchaytirasiz? Maslahatchi vazifalari?
+
+**Mustaqillik:** o'z qarorini qabul qilish va mas'uliyat olishni o'rgataman (loyiha rahbarligi). **Mehnat:** halol mehnat qadrini amaliy ishlar, kasb egalari bilan uchrashuv va "Kasblar haftaligi" orqali. **Qadr:** o'z-o'zini hurmat va boshqalarni qadrlashni shakllantiraman. **Maslahatchi vazifalari:** o'quvchilarni tashabbus va loyihalarga jalb qilish, kasbga yo'naltirish, "O'quvchilar kengashi" orqali mustaqillik, "Ijtimoiy portfolio"da kuzatish. Maqsad — o'z mehnati bilan yashaydigan, mustaqil fikrlaydigan shaxs.
+
+## 23. O'quvchi bilimli, lekin jamoat oldida uyaladi — nima qilasiz?
+
+**Birinchidan**, psixolog bilan sababini aniqlayman. **Ikkinchidan**, **bosqichma-bosqich** yondashaman (kichik guruh → kengroq auditoriya). **Uchinchidan**, "Debat" va notiqlik mashg'ulotlari, kichik rollar bilan tadbirlar. **To'rtinchidan**, har yutug'ini maqtab, ijobiy muhit yarataman. Maqsad — o'ziga ishonch uyg'otish. Bilim + ishonch birlashganda, bu bola sinfning eng yorqin o'quvchisiga aylanishi mumkin.
+
+## 24. "Zakovat" klubini qanday tashkil etasiz?
+
+"Zakovat" — bilim, mantiqiy fikrlash va tezkorlikni rivojlantiruvchi intellektual klub. **Birinchidan**, o'quvchilarni 3–6 kishilik jamoalarga bo'lib, intellektual o'yin formatini tashkil qilaman. **Ikkinchidan**, turli sohalarda (tarix, fan, adabiyot, mantiq) savollar tayyorlayman. **Uchinchidan**, muntazam mashg'ulot, sinflararo va maktablararo turnirlar. **To'rtinchidan**, g'oliblarni rag'batlantiraman, mediada yoritaman. Klub jamoaviy fikrlash, tezkor qaror va keng dunyoqarash, kitobxonlikка qiziqishni kuchaytiradi.
+
+## 25. Halol pul topishni o'quvchilarga qanday tushuntirasiz?
+
+**Birinchidan**, **halol mehnat — har qanday boylikning asosi** ekanini tushuntiraman (pul bilim, mehnat va mahorat evaziga). **Ikkinchidan**, halol tadbirkorlar va kasb egalari bilan uchrashuvlar. **Uchinchidan**, "oson pul", firibgarlik, qimorning xavfini real misollar bilan ko'rsataman. **To'rtinchidan**, kasb-hunar va moliyaviy savodxonlik ko'nikmalarini shakllantiraman. G'oya: "Halol topilgan bir so'm — harom yo'l bilan topilgan mingdan afzal." Halol mehnat — ham xotirjamlik, ham barakali kelajak.
+
+## 26. Raqobatbardosh kasb egalari haqida ko'nikmangiz?
+
+Raqobatbardosh mutaxassis — bugungi va ertangi mehnat bozorida talabgir bo'ladigan kishi. **Ko'nikmalari:** **chuqur kasbiy bilim** + amaliy mahorat; **raqamli savodxonlik** va AIdan foydalanish; **chet tili** (ingliz tili); **yumshoq ko'nikmalar** (muloqot, jamoada ishlash, muammo yechish, liderlik); **doimiy o'rganish** va moslashuvchanlik. Men o'quvchilarni klublar, kasbga yo'naltirish va "Prezident iqtidorli farzandlari" dasturi orqali shu ko'nikmalarga tayyorlayman. Maqsad — o'quvchilarim **global mehnat bozorida** raqobatbardosh bo'lishi.
