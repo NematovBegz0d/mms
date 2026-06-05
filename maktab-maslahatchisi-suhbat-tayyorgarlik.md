@@ -838,3 +838,101 @@ O'quvchilarda tabiatga mehrni amaliyot orqali shakllantiraman: "Eco-schools" klu
 Har bir o'quvchining ruhiy holatiga e'tibor beraman — **psixologik barqarorlik o'qishning asosi**. **1-qadam:** psixolog bilan holatni kuzatish (so'rovnoma, suhbat). **2-qadam:** qiyin sharoitdagi (kam ta'minlangan, Ijtimoiy reyestrdagi) bolalarni aniqlab, alohida e'tibor berish. **3-qadam:** klub va jamoaga jalb qilib, yolg'izlikni bartaraf etish.
 
 **Aniq fakt:** PF-86 Farmonida **Ijtimoiy reyestrga** kiritilgan oilalar farzandlariga alohida e'tibor va imtiyozlar (xorijda o'qishda ustuvorlik) belgilangan. Men shunday o'quvchilarni qo'llab-quvvatlab, imkoniyatlardan teng foydalanishini ta'minlayman. Maqsad — hech bir bola e'tibordan chetda qolmasligi.
+
+
+---
+
+# 🔥 YANGI REAL SAVOLLAR (4-to'plam) — hozirda ishlayotgan mutaxassis ulashgan
+
+> **Manba:** hozirda maktab maslahatchisi bo'lib ishlayotgan mutaxassis ulashgan real bilet savollari.
+>
+> **MUHIM QONUNIYAT (bilet tuzilishi):** deyarli har bir bilet 5 ta blokdan iborat — (1) Kasblar/iqtisodiyot, (2) Vatanparvarlik/Mustaqillik, (3) Klub/tadbir tashkil etish, (4) Muammoli vaziyat, (5) **"Maslahatchi kim + istiqbol reja"** (DEYARLI HAR BILETDA!).
+>
+> **DIQQAT:** "MOCK qaysi fanlarda?" → javob: **deyarli barcha fanlarda** (faqat chet tili emas!). Komissiya ikkilantirishga urinishi mumkin — ishonchdan qaytmang.
+
+## 1. O'qituvchi yillik to'garak hisobotini topshirmadi — nima qilasiz?
+
+Hisobot — to'garak natijasini ko'rsatuvchi muhim hujjat. **1-qadam:** o'qituvchi bilan suhbatlashib **sababini** bilaman (bandlik, hujjat yuritishni bilmaslik, e'tiborsizlik). **2-qadam:** hisobot shakli/namunasini ko'rsatib **amaliy yordam** beraman. **3-qadam:** aniq **muddat** belgilayman. **4-qadam:** hal bo'lmasa ma'muriyatga yetkazaman. Maqsad — ayblash emas, tizimni yo'lga qo'yish; barcha rahbarlar uchun yagona qulay hisobot shaklini joriy qilaman.
+
+## 2. Ijtimoiy himoyaga muhtoj (kam ta'minlangan) oila farzandiga yo'l xaritasi
+
+**1.** Ro'yxat shakllantirish (Ijtimoiy reyestr asosida). **2.** Mavjud **imtiyozlar** haqida ma'lumot berish. **3.** Qobiliyatni aniqlab, **bepul to'garak va klublarga** jalb qilish. **4.** Kasb-hunarga yo'naltirish (tezroq mustaqillik uchun). **5.** Iqtidorli bo'lsa, **bosqichma-bosqich reja** bilan oliygohga (grant) kirishiga ko'maklashish. **6.** Maktab va homiylar yordamida o'quv vositalari bilan ta'minlash, mahalla bilan hamkorlik. Maqsad — moddiy qiyinchilik iqtidorga to'sqinlik qilmasligi, teng imkoniyat.
+
+## 3. Sinfda o'g'rilik sodir bo'ldi, ota-ona kelib janjal qilyapti — qanday metod bilan ish tutasiz?
+
+**1-qadam:** vaziyatni **tinchlantiraman** — ota-onani alohida xonaga taklif qilib, hurmat bilan tinglayman. **2-qadam:** **psixolog** bilan ishlab, ham ayblanayotgan bola, ham boshqa o'quvchilar ruhiyatini himoya qilaman. **3-qadam:** masalani **oshkora ayblovsiz**, xolis o'rganaman — guvohsiz hech kimni aybdor qilmayman. **4-qadam:** sinf rahbari va ma'muriyat bilan adolatli yechim. **5-qadam:** tarbiyaviy xulosa — halollik va o'zganing haqqi mavzusida sinf soati. Maqsad — bolalar psixikasini asrash, vaziyatni tarbiya imkoniyatiga aylantirish.
+
+## 4. Bag'rikenglik (tolerantlik)ni qanday shakllantirasiz?
+
+**Birinchidan**, O'zbekiston ko'pmillatli, bag'rikeng mamlakat ekanini, har bir inson qadrli ekanini tushuntiraman. **Ikkinchidan**, turli madaniyatlarni o'rganadigan tadbirlar ('Do'stlik festivali', xalqlar urf-odatlari kechalari). **Uchinchidan**, **'Debat'** klubi orqali boshqacha fikrni hurmat qilish. **To'rtinchidan**, jamoaviy loyihalarda turli bolalarni birga ishlashga undash. Maqsad — o'quvchi 'mendan farq qiluvchi' insonni hurmatga loyiq deb bilishi. Bag'rikenglik — yuksak madaniyat belgisi.
+
+## 5. O'quvchi shaxsiy manfaatdan jamoa manfaatini ustun qo'yishi uchun nima qilasiz?
+
+**Birinchidan**, jamoaviy maqsad qo'yib, **birgalikda erishish** zavqini his qildiraman. **Ikkinchidan**, jamoa uchun fidoyilik ko'rsatgan **qahramonlar misolini** keltiraman. **Uchinchidan**, 'O'quvchilar kengashi' va volontyorlik orqali o'zgalar uchun ishlash tajribasi. **To'rtinchidan**, jamoaga foyda keltirgan o'quvchini rag'batlantiraman. Maqsad — 'men' emas, 'biz' deb fikrlash; shaxsiy va jamoaviy manfaat **uyg'unligi**.
+
+## 6. Insho / esse tashkil etish rejangiz?
+
+Inshoni fikrlash, tarbiya va kasbga yo'naltirish vositasi sifatida qo'llayman. **Yillik mavzular:** 'Mening orzuimdagi kasb', 'Vatan kelajagi — mening qo'limda', 'Men 2035-yilda', 'Internet: foyda va xavf'. **Bosqichlar:** mavzu e'loni → yo'naltiruvchi savollar → mustaqil yozish → tahlil va feedback → eng yaxshilarni mukofotlash. **Baholash:** mavzu ochilishi, ijodkorlik, mantiqiylik, savodxonlik (5 balldan). Maqsad — insho orqali o'quvchining fikrlash darajasi va qiziqishini aniqlab, yo'naltirish.
+
+## 7. Soft skills nima va qaysi kasbda muhim?
+
+**Soft skills** — insonning shaxsiy va ijtimoiy ko'nikmalari: muloqot, jamoada ishlash, liderlik, vaqtni boshqarish, tanqidiy fikrlash, stressga chidamlilik, moslashuvchanlik. Oddiy qilib: **hard skill — "nima qila olishing", soft skill — "qanday qila olishing".** **Qaysi kasbda muhim?** — deyarli barcha kasbda, ayniqsa **inson bilan ishlaydigan** sohalarda (o'qituvchi, shifokor, psixolog, menejer, rahbar). Bugun ish beruvchilar diplomdan ko'ra ko'pincha soft skillsga e'tibor beradi. Men ularni klublar, debat va 'O'quvchilar kengashi' orqali rivojlantiraman.
+
+## 8. Hayot davomida ilm olish (umrbod o'qish) va mehnat bozori
+
+Bitta diplom bilan butun umr ishlash davri tugadi. Men o'quvchilarga **"umrbod o'rganish (lifelong learning)"** g'oyasini singdiraman: bilim doimiy yangilanadigan narsa. O'quvchilarga 'o'rganishni o'rganish'ni — mustaqil bilim olish va moslashuvni o'rgataman. Falsafam: **"Kasb emas, kompetensiya tanlash kerak"** — kasb o'zgaradi, ko'nikma qoladi. Maqsadim — bolani bugungi imtihonga emas, **2035-yil mehnat bozoriga** tayyorlash.
+
+## 9. O'quvchining bo'sh vaqtini qanday rejalashtirasiz?
+
+Tamoyilim: **"Bo'sh vaqt nazoratsiz qolmasligi kerak."** **1.** Diagnostika (anketa/test, risk guruhini aniqlash). **2.** To'garak/klubga yo'naltirish (intellektual: Debat, Zakovat, kitobxonlik; ijodiy: teatr, dizayn; raqamli: IT, robototexnika). **3.** Sport (jismonan faol bola stressga chidamli). **4.** Kasbga yaqinlashtirish ('Bir kun — bir kasb'). **5.** Volontyorlik va ijtimoiy faollik. Maqsad — har bola kamida bitta ijodiy/sport faoliyatiga jalb qilinishi.
+
+## 10. Festival (Atlas/Milliy liboslar) — mablag' ham, homiy ham yo'q. Nima qilasiz?
+
+Mablag' yo'qligi to'siq emas. **Birinchidan**, mavjud imkoniyatdan maksimal foydalanaman (maktab zali, o'quvchilarning o'z milliy liboslari). **Ikkinchidan**, o'quvchilar va ota-onalarni jalb qilaman (libos, dekoratsiya, taom). **Uchinchidan**, sahna bezagini o'quvchilar o'zlari (rasm, qo'l mehnati) tayyorlaydi. **To'rtinchidan**, ijtimoiy tarmoqda (#AtlasFest) yoritib, kelajakda homiy jalb qilaman. Maqsad — festival qiymati pulda emas, g'oya va ishtirokda.
+
+## 11. Texnika va muhandislik sohasining davlat iqtisodiyotiga foydasi?
+
+Texnika-muhandislik — iqtisodiyotning **lokomotivi**. **Birinchidan**, muhandislar ishlab chiqarish va sanoatni rivojlantiradi (ish o'rinlari, daromad). **Ikkinchidan**, innovatsiya va yangi texnologiya yaratib, raqobatbardoshlikni oshiradi. **Uchinchidan**, infratuzilma (yo'l, ko'prik, energiya) — muhandislar mehnati. **Fakt:** Germaniya, Janubiy Koreya, Yaponiya iqtisodiyoti kuchli muhandislik va texnologiyaga asoslanadi. Men o'quvchilarni **STEAM** yo'nalishlariga qiziqtiraman — bu ham ularning, ham mamlakatning kelajagi.
+
+## 12. Davlat tiliga hurmat / davlat tilini qanday o'rgatasiz?
+
+Davlat tili — milliy o'zlik va birlik ramzi. **Birinchidan**, tilning maqomi va ahamiyatini tushuntiraman. **Ikkinchidan**, tilni amaliy va qiziqarli o'rgataman (xalq ertaklari, dostonlar, maqollar, rol o'yinlari). **Uchinchidan**, kitobxonlik (Navoiy, Qodiriy, Cho'lpon) orqali til boyligi. **To'rtinchidan**, 'har kuni bitta yangi so'z', til olimpiadalari, insho tanlovlari. **Beshinchidan**, sof nutqni o'zim o'rnak bo'lib ko'rsataman. Maqsad — ona tiliga muhabbat va g'urur shakllantirish.
+
+## 13. MOOC (ommaviy ochiq onlayn kurslar) nima va undan qanday foydalanasiz?
+
+**MOOC (Massive Open Online Courses)** — cheklanmagan ishtirokchiga masofaviy ta'lim beruvchi ommaviy ochiq onlayn kurslar (Coursera, edX, Udemy). **Foydasi:** o'quvchi joylashuvidan qat'i nazar, dunyoning nufuzli universitetlari kurslarini ko'pincha bepul o'rganishi mumkin. **Men:** o'quvchilarni qiziqishiga mos ishonchli MOOC platformalariga yo'naltiraman, umrbod o'rganish ko'nikmasini shakllantiraman. Bu ayniqsa kam ta'minlangan va uzoq hududdagi o'quvchilar uchun **teng imkoniyat** yaratadi.
+
+## 14. O'quvchi oliy ta'limga kirishdan umidini uzgan — nima qilasiz?
+
+**1-qadam:** psixolog bilan umidsizlik **sababini** aniqlayman. **2-qadam:** **muvaffaqiyat hikoyalarini** ko'rsataman (qiyinchilikni yengganlar). **3-qadam:** kichik, erishish mumkin **maqsadlar** qo'yib, har yutug'ini rag'batlantiraman — ishonchni tiklayman. **4-qadam:** muqobil yo'llarni ko'rsataman (kasb-hunar, MOOC, grant, kechroq topshirish). **5-qadam:** fan o'qituvchisiga biriktirib, real reja tuzaman. Maqsad — 'sening ham imkoning bor' degan ishonchni qaytarish.
+
+## 15. Ota-onalar bilan kasbga yo'naltirish mavzusida suhbat tashkil qiling
+
+**1.** Ota-onalar yig'ilishini tashkil qilaman. **2.** Bugungi mehnat bozori va talabgir kasblar (IT, muhandislik) haqida ma'lumot beraman. **3.** Eng muhim g'oya: kasbni ota-ona xohishi yoki moda emas, **bolaning qobiliyati va qiziqishi** asosida tanlash. **4.** Psixologik diagnostika natijalarini individual muhokama qilaman. **5.** 'Majburlash emas, qo'llab-quvvatlash' kerakligini misollar bilan tushuntiraman. Maqsad — ota-ona va maktab bir maqsad yo'lida birlashishi.
+
+---
+
+## ⭐ "MASLAHATCHI KIM + ISTIQBOL REJA" — yodlash uchun 11 punktli javob
+
+> Bu savol DEYARLI HAR BILETDA tushadi. Quyidagilarni "men tashkil etaman" deb ayting:
+
+1. Maktabdagi barcha o'quvchilar ro'yxati va ma'lumotlarini shakllantiraman
+2. Psixolog bilan iqtidor/qiziqishni aniqlovchi testlar o'tkazaman
+3. "Liderlar" guruhini tuzib, o'z-o'zini boshqarishni yo'lga qo'yaman
+4. "Kasbim — faxrim" uchrashuvlari va mahorat darslarini tashkil etaman
+5. Ijtimoiy guruhlar (kam ta'minlangan, vasiylik, nogiron) bilan tizimli ish
+6. Ota-onalar bilan talabgir kasblar yuzasidan yig'ilishlar
+7. Maktab rahbari bilan "Kasbga yo'naltirish xonasi"ni tashkil etaman
+8. Tarixiy obidalarga vatanparvarlik sayohatlari
+9. Fan va qiziqish to'garaklarini jonlantiraman
+10. IT markaz bilan hamkorlikda raqamli mashg'ulotlar
+11. "Haftada bir kitob" loyihasi (kitobxonlik madaniyati)
+
+## 💎 Kuchli iboralar (suhbatda ishlating)
+
+- **"Kasb emas, kompetensiya tanlash kerak"** — kasblar savolida
+- **"Bolani 2035-yil mehnat bozoriga tayyorlash kerak"** — kelajak kasblar
+- **"Brain drain emas, brain gain"** — chet elda o'qish (bilimni Vatanga qaytarish)
+- **"Hard skill — nima qila olishing, soft skill — qanday qila olishing"**
+- **"Bo'sh vaqt nazoratsiz qolmasligi kerak"**
+- **GROW modeli** — kouching/qo'llab-quvvatlashda
