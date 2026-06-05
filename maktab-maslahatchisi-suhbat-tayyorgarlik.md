@@ -936,3 +936,257 @@ Davlat tili — milliy o'zlik va birlik ramzi. **Birinchidan**, tilning maqomi v
 - **"Hard skill — nima qila olishing, soft skill — qanday qila olishing"**
 - **"Bo'sh vaqt nazoratsiz qolmasligi kerak"**
 - **GROW modeli** — kouching/qo'llab-quvvatlashda
+
+
+---
+
+# 🎫 19 TA REAL BILET — TO'LIQ JAVOBLAR BILAN
+
+> Mutaxassis ulashgan real savollar asosida 19 ta bilet (har biri 5 savol). **Eslatma:** deyarli har biletning 5-savoli — "Maslahatchi kim + istiqbol reja" (yuqoridagi 11 punktli javob).
+
+## 🎫 BILET 1
+
+**1. 10–15 yil ichida yo'qolib ketadigan kasblar.** Sun'iy intellekt va avtomatlashtirish tufayli kassir, oddiy operator/ma'lumot kirituvchi, telemarketolog, pochtachi, oddiy buxgalter qisqaradi. Sababi — raqamli texnologiyalar rivoji. Men o'quvchilarni shundan ogohlantirib, yo'qolmaydigan kasblarga yo'naltiraman. Falsafam: "Kasb emas, kompetensiya tanlash kerak" — bolani 2035-yil mehnat bozoriga tayyorlayman.
+
+**2. Ota-ona bir kasbni, bola boshqasini aytdi — kimning fikri muhim?** Bolaning kelajagi haqida gap ketganda, **bolaning qobiliyati va qiziqishi** birinchi o'rinda. Lekin ota-onani ayblamayman: test natijalari (dalil) bilan bola qobiliyatini ko'rsataman, psixolog ishtirokida uch tomon kelishuvga erishamiz. Eng yaxshi qaror — bola, ota-ona va maslahatchi kelishuvi bilan qabul qilingan qaror.
+
+**3. "Atlas festivali"ni qanday tashkil qilasiz?** Tashkiliy guruh (direktor, ma'naviyat o'rinbosari, men, san'at o'qituvchisi) tuzaman. Yo'nalishlar: atlas liboslar defilesi, "Eng chiroyli libos" tanlovi, milliy qo'shiq-raqs, atlas tarixi sahna ko'rinishi, qo'l mehnati ko'rgazmasi. Baholash: milliylik, sahna madaniyati, ijodkorlik, taqdimot (5 balldan). #AtlasFest heshtegi, ota-onalar ishtiroki. Maqsad — milliy o'zlik va estetik did.
+
+**4. O'quvchilarning bo'sh vaqtini qanday rejalashtirasiz?** Tamoyilim: "Bo'sh vaqt nazoratsiz qolmasligi kerak." Diagnostika (qiziqishni aniqlash) → to'garak/klubga yo'naltirish (Debat, IT, kitobxonlik, ijodiy) → sport → "Bir kun – bir kasb" → volontyorlik. Har bola kamida bitta ijodiy yoki sport faoliyatiga jalb qilinadi.
+
+**5. Istiqbol rejangiz.** *(11 punktli standart reja — quyida.)*
+
+## 🎫 BILET 2
+
+**1. Hayot davomida ilm olish va mehnat bozori.** Bitta diplom bilan butun umr ishlash davri tugadi. "Umrbod o'rganish (lifelong learning)" g'oyasini singdiraman, "o'rganishni o'rganish"ni o'rgataman. "Kasb emas, kompetensiya tanlash kerak" — bolani 2035-yilga tayyorlayman.
+
+**2. Insho olish — qanday rejalashtirasiz?** Yillik mavzular ("Mening orzuimdagi kasb", "Men 2035-yilda"). Bosqichlar: mavzu e'loni → yo'naltiruvchi savollar → mustaqil yozish → tahlil/feedback → eng yaxshilarni mukofotlash. Baholash: mavzu ochilishi, ijodkorlik, mantiqiylik, savodxonlik (5 balldan).
+
+**3. Bag'rikenglikni qanday shakllantirasiz?** O'zbekiston ko'pmillatli, bag'rikeng mamlakat ekanini tushuntiraman; "Do'stlik festivali", xalqlar urf-odatlari kechalari; "Debat" orqali boshqacha fikrni hurmat qilish; jamoaviy loyihalar. Bag'rikenglik — yuksak madaniyat belgisi.
+
+**4. Qiz grant yutdi, ota-ona qarshi — qanday ko'ndirasiz?** Ota-onani ayblamayman, xavotirini tushunaman. Faktlar: grant — imkoniyat, ta'lim — mustaqillik, ta'limli qiz — mustahkam oila. Qiz bilan alohida suhbat. Murosa: yaqin shahar OTM, yotoqxona, doimiy aloqa. "Qizingiz grant yutdi — bu uning mehnati, qo'llab-quvvatlasak ertaga sizga tayanch bo'ladi."
+
+**5. Maslahatchining strategik rejasi.** 5 yo'nalish: psixologik qo'llab-quvvatlash, kasbga yo'naltirish, milliy-ma'naviy tarbiya, bo'sh vaqtni mazmunli tashkil etish, raqamli profilaktika. Maqsad — bolani kelajak mehnat bozoriga tayyorlash.
+
+## 🎫 BILET 3
+
+**1. Soft skills qaysi kasbda muhim?** Hard skill — "nima qila olishing", soft skill — "qanday qila olishing". Deyarli barcha kasbda, ayniqsa inson bilan ishlaydigan sohalarda (o'qituvchi, shifokor, psixolog, menejer). Bugun ish beruvchilar diplomdan ko'ra soft skillsga e'tibor beradi.
+
+**2. "Turon teatri" va "Jadidlar izidan" klublarini tashkil qilish bosqichlari.** Qiziqishni aniqlash → ish rejasi+rahbar → Turon: "Adabiyot" darsligidan spektakl; Jadidlar: 8 alloma merosini o'rganish → tanlovlarga bosqichma-bosqich tayyorlash → mediada yoritish.
+
+**3. Davlat tiliga hurmat maktabda qanday amalga oshiriladi?** Tilning maqomini tushuntirish; amaliy o'rgatish (ertak, doston, maqol, rol o'yini); kitobxonlik (Navoiy, Qodiriy, Cho'lpon); "har kuni bitta yangi so'z", til olimpiadalari; o'zim sof nutq bilan o'rnak bo'laman.
+
+**4. Kasb tanlashda mahalliy qarashlar va mehnat bozori to'sqinlik qilmoqda — maslahatingiz?** Muvozanat: mahalliy talabni hisobga olaman, lekin global va masofaviy kasblar imkoniyatini ko'rsataman; eski qarashlarni dalil bilan o'zgartiraman. O'quvchi ham bugungi, ham ertangi imkoniyatni ko'ra olishi kerak.
+
+**5. Istiqbol reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 4
+
+**1. Muammoni hal qilishda maslahatchi qanday yo'l tutishi kerak?** STAR: sababni aniqlash → tahlil → harakat → hamkorlik (direktor, psixolog, ota-ona) → natija/nazorat. Muammoni nizoga emas, hamkorlikka aylantirish; bola manfaati birinchi.
+
+**2. Maslahatchi bo'lsangiz, nimalarni yo'lga qo'ygan bo'lardingiz?** *(11 punktli standart reja.)*
+
+**3. Qiz model bo'lmoqchi, ota-ona qarshi — qanday yo'l tutasiz?** Qiz qobiliyatini baholayman; ota-onaga moda (dizayn, brending) bugungi real industriya, daromadli ekanini dalil bilan tushuntiraman; modaning keng yo'nalishlarini ko'rsataman; uch tomon kelishuvi. Bola manfaati birinchi.
+
+**4. Festival kerak, mablag' ham, homiy ham yo'q — nima qilasiz?** Mavjud imkoniyatdan maksimal foydalanaman (maktab zali, o'quvchilarning liboslari); o'quvchi va ota-onalarni jalb qilaman; bezakni o'quvchilar tayyorlaydi; ijtimoiy tarmoqda yoritib kelajakda homiy jalb qilaman. Festival qiymati pulda emas, g'oyada.
+
+**5. Ijtimoiy himoyaga muhtoj oila farzandiga yo'l xaritasi.** Ro'yxat (Ijtimoiy reyestr) → imtiyozlar haqida ma'lumot → bepul to'garak/klubga jalb → kasb-hunarga yo'naltirish → iqtidorli bo'lsa bosqichma-bosqich oliygohga (grant) → maktab/homiy yordamida o'quv vositalari, mahalla hamkorligi.
+
+## 🎫 BILET 5
+
+**1. Yumshoqlik bilan gapirish qaysi kasb egalariga xos?** Muloqot madaniyati — inson bilan ishlaydigan kasblarga xos: o'qituvchi, shifokor, psixolog, tarbiyachi, maslahatchi, sotuvchi, menejer. Shifokor yumshoq munosabatda bo'lsa, bemor tezroq tuzaladi.
+
+**2. Davlat tilini bolalarga yaxshiroq o'rgatish uchun nima qilasiz?** Amaliy va qiziqarli usul (ertak, doston, maqol, rol o'yini); kitobxonlik; "har kuni bitta yangi so'z", olimpiada, insho; zamonaviy vositalar (video, ilova); o'zim o'rnak. Til — zavq va g'urur bilan o'rgatilsin.
+
+**3. Bolalar "Turon teatri" va "Jadidlar" klubini oching deyishdi — qanday yo'l tutasiz?** Quvonarli — tashabbus o'quvchidan! Darhol qo'llab-quvvatlayman: ro'yxat+reja+rahbar → spektakl/alloma merosini o'rgatish → tanlovlarga olib chiqish → mediada yoritish.
+
+**4. Milliy qadriyat va zamonaviy kasb tafovuti — maslahatingiz?** Milliy meros bilan zamonaviylikni birlashtirish: hunarmandchilikni onlayn savdo bilan, milliy taomni zamonaviy biznes bilan. Ota-onaga: meros muhim, lekin bola zamon talabiga mos rivojlansin. Bola — ildiziga sodiq, zamonaviy fikrlaydigan bo'lishi.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 6
+
+**1. Avtomatlashtirish/robotlashtirish tufayli yo'qoladigan kasblar (sabablari bilan).** Kassir (self-checkout), oddiy operator (dasturlar), telemarketolog (chatbot/AI), pochtachi (e-xizmat), oddiy buxgalter (avtohisob), konveyer ishchisi (robot). Sabab — mashina arzonroq, tezroq, xatosiz bajaradi.
+
+**2. Ilmga motivatsiya berish mexanizmi.** "Nega kerak?" (real foyda) → role model → SMART maqsad → small wins → geymifikatsiya (ball, reyting) → pozitiv muhit → interaktiv metodlar. Maqsad — ichki motivatsiya.
+
+**3. "Eng yosh kitobxon" ko'rik-tanlovini qanday o'tkazasiz?** Nizom+kitoblar ro'yxati → o'qish → shartlar (mazmun, savol-javob, asar tahlili) → hakamlar bahosi → g'oliblarni rag'batlantirish va mediada yoritish. Kitobxonlikни zavqli musobaqaga aylantirish.
+
+**4. Nogironligi bor o'quvchiga qaysi kasbni maslahat berasiz?** Nuqsoniga emas, imkoniyatiga qarayman: IT, dasturlash, dizayn, kontent yaratish, copywriting, tarjimonlik, qo'l hunarmandchiligi — masofaviy va ijodiy kasblar. Inklyuziv to'garaklar ham tashkil qilaman.
+
+**5. Maslahatchi kim? Istiqbol reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 7
+
+**1. Yuqori talabdagi kasblar va jamiyat taraqqiyotidagi o'rni (faktlar bilan).** IT/dasturchi, AI, kibrxavfsizlik, muhandis, shifokor, moliya tahlilchisi. IT raqamli iqtisodiyotni, muhandis sanoatni, shifokor sog'liqni rivojlantiradi. Fakt: rivojlangan davlatlar iqtisodiyoti texnologiya va innovatsiyaga asoslanadi.
+
+**2. Korxonaga olib bordingiz, o'quvchilar passiv — qanday yo'l tutasiz?** Sababni aniqlayman; faol jalb qilaman (savol, kichik topshiriq); muhokama o'tkazaman; keyingi ekskursiyani qiziqishiga moslashtraman. Passivlik — qiziqarsizlik belgisi, formatni o'zgartiraman.
+
+**3. "Zakovat" o'yinini qanday tashkil etasiz va OAVda yoritasiz?** 3–6 kishilik jamoalar, turli sohada savollar, turnirlar, g'oliblarni rag'batlantirish. OAV: sifatli video → reels/post → rasmiy sahifa va heshteg → ishtirokchilarni teglash.
+
+**4. Va'daga vafo tamoyillarini qanday shakllantirasiz?** So'zida turish — obro' va halollik ekanini tushuntiraman; o'zim o'rnak; kichik mas'uliyat berib bajarishga o'rgataman; "va'da — qarz" qadriyatini singdiraman.
+
+**5. Maslahatchi kim? Istiqbol reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 8
+
+**1. Qaysi kasblarga ijodiy yondashuv kerak? (faktlar bilan)** Dizayn, arxitektura, reklama/marketing, kontent yaratish, san'at, muhandislik, IT, jurnalistika. Asos: shablon yetarli emas — yangi g'oya raqobatda yutuqni belgilaydi. AI davrida ijodkorlik insonni mashinadan ustun qiladi.
+
+**2. Va'daga vafoni qanday targ'ib qilasiz?** Sinf soatlarida tushuntirish; o'zim o'rnak; kichik mas'uliyatlar; milliy/adabiy misollar; so'zida turganlarni rag'batlantirish. "Va'da — qarz".
+
+**3. "Zakovat" klubini OAV va televideniyada qanday yoritasiz?** Professional video → reels/post/reportaj → rasmiy sahifa, mahalliy TV bilan hamkorlik → heshteg → muvaffaqiyatli o'quvchilar haqida syujet. Bilim va iqtidorni ommalashtirib, boshqalarni ilhomlantirish.
+
+**4. Kasb videolari qiziqtirmadi — nima qilasiz?** Interaktivlikka o'taman: jonli uchrashuv, ekskursiya, mahorat darsi; o'quvchilarga video tayyorlatib tanlov; geymifikatsiya. Faol ishtirokchi bo'lganda qiziqish paydo bo'ladi.
+
+**5. Istiqbol rejalaringiz.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 9
+
+**1. Masofaviy ishlasa bo'ladigan kasblar.** Dasturchi, dizayner, kontent-kreator, SMM-menejer, copywriter, onlayn o'qituvchi, tarjimon, data analitik, video-montajchi. Joydan turib dunyoga ishlash; ayniqsa nogironligi bo'lganlar uchun imkoniyat.
+
+**2. Hayvonot va o'simlik dunyosiga mehrda qanday tavsiya berasiz?** "Eco-schools" klubi; gul/daraxt ekish; "yashil burchak"; qushlar uchun donxona; tabiatga ekskursiya; ekologik film/tanlov. Tavsiya: "Tabiat — umumiy uyimiz, uni asrash burchimiz."
+
+**3. OTMga tayyorlanayotgan o'quvchiga biriktirilgan pedagog sustkashlik qilmoqda — nima qilasiz?** Pedagog bilan suhbat (sabab + o'quvchi muhimligi); real jadval; hal bo'lmasa direktor/pedkengash; zarur bo'lsa boshqa o'qituvchi yoki MOOC. Tayyorgarlik to'xtamasligi kerak.
+
+**4. O'quvchining kasbga qiziqishini qanday aniqlaysiz?** Kompleks diagnostika: kuzatuv + so'rovnoma/anketa + psixologik test (Holland/Klimov) + suhbat + o'quv natijalari tahlili. Bitta usulga emas, hammasini birlashtiraman.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 10
+
+**1. Ijtimoiy soha (ta'lim, psixologiya) uchun 3 ta ko'nikma.** (1) Muloqot va faol tinglash; (2) Empatiya (hamdardlik); (3) Muammoni hal qilish va psixologik barqarorlik. Qo'shimcha — ishonchlilik va maxfiylik.
+
+**2. Hayvonot va o'simliklarni asrashni qanday o'rgatasiz?** "Eco-schools" klubi; daraxt/gul ekish, donxona, bog'ga g'amxo'rlik; ekologik tanlov, plakat, film; tabiatga ekskursiya; kundalik odatlar (suv tejash, axlatni ajratish).
+
+**3. O'quvchilarni tarixiy obidalarga olib borish tartibi.** Tayyorgarlik (obida, ruxsat, transport, rozilik, xavfsizlik) → jarayon (tarix va ahamiyatni qiziqarli tushuntirish, savol-javob) → yakun (muhokama, taassurot, portfolio). Vatanparvarlik va tarixiy xotirani his qildirish.
+
+**4. "Prezident iqtidorli farzandlari" o'quvchilari past natija — nima qilasiz?** Psixolog bilan sababni aniqlash (charchoq, motivatsiya, oila, sog'lik) → individual reja → fan o'qituvchisi + MOCK → ota-ona bilan ish → yangi maqsad/rag'bat. Iqtidorni yo'qotmaslik — mas'uliyatim.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 11
+
+**1. Kelajak kasblari va o'quvchilarni tayyorlash.** Oddiy kasblar yo'qoladi, yangilari (AI, data analitik, kibrxavfsizlik, SMM, robototexnika) paydo bo'ladi. Raqamli savodxonlik va soft skillsni rivojlantiraman. "Kasb emas, kompetensiya tanlash kerak."
+
+**2. O'zbekiston Mustaqilligi qadrini qanday shakllantirasiz?** Tarixiy ong (mustaqillikkacha/keyingi davrni solishtirish); faxriylar bilan davra suhbatlari; "Mening Vatanim — mening faxrim" loyihalari; amaliy ishtirok. O'quvchi "Mustaqillik — bu mening imkoniyatim" deb anglashi.
+
+**3. Sinfda lider yo'q — qanday lider aniqlaysiz?** "Lider yo'q" sinf bo'lmaydi — salohiyat ochilmagan. Har safar turli o'quvchiga rahbarlik; "Hafta sardori" rotatsion tizimi; passivlarni kichik mas'uliyatdan boshlash; trening va sotsiometriya. Yashirin liderlar aniqlanadi.
+
+**4. O'quvchi chet elda o'qish istagini bildirdi — maslahatingiz?** To'liq qo'llab-quvvatlayman: yo'nalish/davlat tanlash → til sertifikati (IELTS/TOEFL/SAT) → grant ("El-yurt umidi", TOP-100) → ota-ona bilan muloqot → "brain gain" (bilimni Vatanga qaytarish). Orzuni real rejaga aylantirish.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 12
+
+**1. Zamonaviy kasblarga tayyorlaydigan davlat tashkilotlari?** Ixtisoslashtirilgan ta'lim muassasalari agentligi, "Kelajak" markazlari, IT Park, "El-yurt umidi", Yoshlar ishlari agentligi, "Ishga marhamat" monomarkazlari, "Digital Generation Uzbekistan". Men ular bilan hamkorlik qilaman.
+
+**2. Ekskursiya va kasb egalari bilan uchrashuvni qanday tashkil qilasiz?** Tayyorgarlik (qiziqish, korxona, transport, xavfsizlik) → o'tkazish (jonli ko'rish, savol-javob, master-klass) → yakun (muhokama, portfolio). Kasbni amaliy tushunishning eng ta'sirchan usuli.
+
+**3. 8–9-sinflar OTMga qiziqadi, kasb-hunarga emas — qanday yo'l tutasiz?** Kasb-hunar obro'sini dalil bilan ko'rsataman: muvaffaqiyatli kasb egalari, ekskursiya, bozor statistikasi, OTMga ham yo'l ochishi. Majburlamayman, to'liq ma'lumot beraman. OTM yagona yo'l emas.
+
+**4. "O'zbekistonlik" tuyg'usini shakllantirishda maktab roli.** Maktab — asosiy o'choq: tarix/til/adabiyot, milliy qadriyat, davlat ramzlari, "Jadidlar izidan", kitobxonlik. O'quvchida mansublik, g'urur va daxldorlik tuyg'usini uyg'otaman.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 13
+
+**1. Muhandislik va ishlab chiqarish sohasidagi istiqbolli kasblar.** Robototexnika, mexatronika, energetika (yashil energiya), qurilish/arxitektura, oziq-ovqat texnologiyasi, avtomatlashtirish, IT-muhandis. Sanoat rivoji bilan talab yuqori. STEAMga qiziqtiraman.
+
+**2. O'quvchilarda liderlik ko'nikmasini rivojlantirish.** "O'quvchilar kengashi" saylovlari; navbatma-navbat mas'uliyat/rol; liderlik treninglari, debat; muvaffaqiyatli liderlar bilan uchrashuv; tashabbusni qo'llab-quvvatlash. Liderlik — tarbiyalanadigan ko'nikma.
+
+**3. Ota-onalar bilan kasbga yo'naltirish suhbatini tashkil qiling.** Yig'ilish → bugungi mehnat bozori/talabgir kasblar → "kasbni bola qobiliyati asosida tanlash" g'oyasi → diagnostika natijalarini individual muhokama → "majburlash emas, qo'llab-quvvatlash". Ota-ona va maktab bir maqsadda birlashishi.
+
+**4. O'quvchi OTMga kirishdan umidini uzgan — nima qilasiz?** Psixolog bilan sabab → muvaffaqiyat hikoyalari → kichik maqsadlar va rag'bat → muqobil yo'llar (kasb-hunar, MOOC, grant) → fan o'qituvchisi + reja. "Sening ham imkoning bor" ishonchini qaytarish.
+
+**5. Maslahatchi kim va istiqbol rejangiz.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 14
+
+**1. IT tufayli yuzaga kelgan 4 ta istiqbolli kasb.** (1) Sun'iy intellekt (AI) mutaxassisi; (2) Data analitik; (3) Kibrxavfsizlik mutaxassisi; (4) SMM/raqamli marketolog. (+ veb/mobil dasturchi, UX/UI dizayner). Yuqori daromadli va talabgir.
+
+**2. Chidamlilik ko'nikmasini shakllantirishda qanday pedagogik yondashuv?** "O'sish tafakkuri" (xato — o'rganish imkoni); murakkab vazifa berib sabr bilan yakunlash; qayta urinish; stress-boshqaruv va sport; qiyinchilikni yenggan insonlar misoli. Mag'lubiyatdan qo'rqmaydigan shaxs.
+
+**3. "Raqamli avlod qizlari" klubini bosqichma-bosqich tashkil qilish.** Targ'ibot (InfoWeek, plakat) → a'zolar+reja+koordinator → IT Park rezidentlari/muvaffaqiyatli ayollar bilan mahorat darslari → loyiha (startap) tayyorlash → tuman bosqichidan respublikagacha + mediada yoritish.
+
+**4. O'qituvchilar to'garak hisobotini topshirmadi — nima qilasiz?** O'qituvchi bilan suhbat (sabab) → namuna ko'rsatib amaliy yordam → muddat belgilash → hal bo'lmasa ma'muriyat. Yagona qulay hisobot shaklini joriy qilaman. Ayblash emas, tizim.
+
+**5. Maslahatchi kim?** *(Ta'rif + 11 punktli standart reja.)*
+
+## 🎫 BILET 15
+
+**1. Xorijdagi mehnat bozori va o'quvchi portfoliosi.** Mehnat bozori globallashgan. Portfolio — o'quvchining yutuqlari, sertifikatlari, loyihalari, CV, motivatsion xati. Xorijiy oliygoh va ish topishda muhim. Erta yoshdan shakllantiraman ("Ijtimoiy portfolio").
+
+**2. Sinfda o'g'rilik, ota-ona janjal qilyapti — qanday metod bilan ish tutasiz?** Tinchlantirish (alohida xona, hurmat bilan tinglash) → psixolog bilan bolalar ruhiyatini himoya → oshkora ayblovsiz xolis o'rganish → ma'muriyat bilan adolatli yechim → tarbiyaviy xulosa (halollik sinf soati). Bolalar psixikasini asrash.
+
+**3. Bitiruvchilarni OTMga kiritish yo'l xaritangiz.** Qiziqish/qobiliyatni aniqlash → tayyorgarlik rejasi + fan o'qituvchisi → MOCK imtihonlar → hujjat/grant → iqtidorlilarni "Prezident iqtidorli farzandlari" orqali TOP-100 ga → ota-ona hamkorligi + monitoring.
+
+**4. Kasb videolari qiziqtirmadi — qaysi zamonaviy metodlardan foydalanasiz?** Jonli uchrashuv/master-klass, ekskursiya, rol o'yini, geymifikatsiya ("Bir kun – bir kasb", kvest), o'quvchilarga video tayyorlatib tanlov, virtual sayohat. Faol ishtirokchi = qiziqish.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 16
+
+**1. Raqamli iqtisodiyotdagi istiqbolli kasblar.** Dasturchi, AI mutaxassisi, data analitik, kibrxavfsizlik, SMM, UX/UI dizayner, blokcheyn mutaxassisi, e-commerce menejeri. Yuqori daromad, masofaviy ishlash. IT to'garaklar orqali tayyorlayman.
+
+**2. Vatanparvarlik tarbiyasida maktab roli.** Tarix/til/adabiyot; davlat ramzlari, bayramlar; "Jadidlar izidan", tarixiy ekskursiyalar; amaliy ezgu ishlar. Vatanga chuqur muhabbat va mas'uliyat — amaliy mehr bilan.
+
+**3. Kasb tanlashda bola ↔ ota-ona ziddiyati.** Bola qobiliyatini test bilan aniqlash → ota-onani ayblamaslik → sohaning istiqbolini dalil bilan tushuntirish → uch tomon kelishuvi. Bola qobiliyati birinchi, ota-ona — hamkor.
+
+**4. Maslahatchi kim.** "Kelajak" markazi maqsadlarini maktabda amalga oshiruvchi, o'quvchilarni qo'shimcha ta'limga jalb qiluvchi mutaxassis; o'quvchi-ota-ona-maktab o'rtasida ko'prik; ikki rahbarga bo'ysunadi.
+
+**5. Istiqbol rejalar.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 17
+
+**1. Texnika va muhandislik sohasining davlat iqtisodiyotiga foydasi.** Lokomotiv: ishlab chiqarish/sanoatni rivojlantiradi (ish o'rni, daromad); innovatsiya va raqobatbardoshlik; infratuzilma (yo'l, energiya). Fakt: Germaniya, Koreya, Yaponiya iqtisodiyoti muhandislikka asoslanadi.
+
+**2. O'quvchi shaxsiy manfaatdan jamoa manfaatini ustun qo'yishi uchun nima qilasiz?** Jamoaviy maqsad va birgalikda erishish zavqi; fidoyilik qahramonlari misoli; "O'quvchilar kengashi" va volontyorlik; jamoaga foyda keltirganni rag'batlantirish. "Men" emas, "biz"; shaxsiy va jamoaviy manfaat uyg'unligi.
+
+**3. O'quvchilar "Xorijiy tillar" va "Debat" klublarini so'radi — nima qilasiz?** Darhol qo'llab-quvvatlayman: ro'yxat+reja+rahbar → Xorijiy tillar (speaking club, IELTS/TOEFL) + Debat (munozara, tanqidiy fikrlash) → ikkisini birlashtirib ingliz tilida debat. Oliygoh va kelajak uchun muhim.
+
+**4. O'qituvchi yillik to'garak hisobotini topshirmadi — nima qilasiz?** Suhbat (sabab) → namuna+amaliy yordam → muddat → hal bo'lmasa ma'muriyat. Yagona qulay hisobot shaklini joriy qilaman.
+
+**5. Maslahatchi kim + reja.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 18
+
+**1. Ijtimoiy soha xodimlari qanday xususiyatlarga ega bo'lishi kerak?** Empatiya; muloqot va faol tinglash; sabr va bag'rikenglik; mas'uliyat va halollik (maxfiylik); psixologik barqarorlik; xolislik. Soft skills bilimdan kam ahamiyatli emas.
+
+**2. Tarixiy obidalarga qanday sayohat tashkil qilasiz?** Tayyorgarlik (obida, ruxsat, transport, rozilik, xavfsizlik) → jarayon (tarix/ahamiyatni qiziqarli tushuntirish, savol-javob) → yakun (muhokama, taassurot, portfolio). Vatanparvarlik va g'ururni his qildirish.
+
+**3. Ekologik madaniyatni qanday shakllantirasiz?** "Eco-schools" klubi; ko'kalamzorlashtirish, recycling, tejash; tanlov, plakat, film; tabiatga ekskursiya; kundalik odatlar. Ekologik ong kundalik odatga aylanishi.
+
+**4. Prezident tashabbusi konsepsiyasi.** PF-86 (15.05.2025). Maqsad — iqtidorli yoshlarni aniqlash, inson kapitalini rivojlantirish. 3 komponent: Milliy dastur (9-sinf, 1500 nafar, 1:15, TOP-100), Al-Beruniy maktab (IB), Hamjamiyat. Men dasturni targ'ib qilib, iqtidorlilarni tayyorlayman.
+
+**5. Istiqbol rejangiz.** *(11 punktli standart reja.)*
+
+## 🎫 BILET 19
+
+**1. Zamonaviy texnologiyalar davrida kasblarning afzalligi (faktlar bilan).** Masofaviy ishlash; yuqori daromad (IT/AI); global imkoniyat; avtomatlashtirish mehnatni yengillashtiradi. Fakt: jahonda eng tez o'sayotgan sohalar — IT, AI, raqamli iqtisodiyot; IT Park eksporti o'smoqda.
+
+**2. Vatanni himoya qilish tuyg'usini shakllantirishda nima qilasiz?** Harbiylar/faxriylar/qahramonlar bilan uchrashuv; milliy qahramonlar (Manguberdi, Temur) va jadidlar fidoyiligi; harbiy-vatanparvarlik tadbirlari, qismlarga ekskursiya; amaliy ezgu ishlar. Vatan himoyasi — har kungi halol mehnat ham.
+
+**3. 9-sinf bitiruvchilarini akademik litsey va kasb-hunarga qanday jalb qilasiz?** Qobiliyatni test bilan aniqlash → litsey/kasb-hunar/texnikum haqida to'liq ma'lumot → ekskursiya, bitiruvchilar bilan uchrashuv → shaxsiy tavsiya + ota-ona. Akademik moyillar litseyga, amaliy moyillar kasb-hunarga.
+
+**4. Davlat ramzlariga hurmatni qanday shakllantirasiz?** Ramzlarning ma'no/tarixini tushuntirish; rasmiy marosimlar (bayroq, madhiya) tantanavor; "Davlat ramzlari kuni", viktorina; o'zim o'rnak. Hurmat qalbdan, ongli his-tuyg'udan kelib chiqsin.
+
+**5. Maslahatchi bo'lsangiz nima qilasiz, rejangiz?** *(11 punktli standart reja.)*
+
+---
+
+## ⭐ STANDART JAVOB: "Maslahatchi kim + istiqbol reja" (11 punkt)
+
+**Maslahatchi kim:** "Kelajak" markazining maqsad va vazifalarini maktabda amalga oshiruvchi, o'quvchilarni qo'shimcha ta'lim, to'garak, loyiha va tashabbuslarga jalb qiluvchi mutaxassis. O'quvchi, ota-ona va maktab o'rtasida ko'prik. Ikki rahbarga — tuman "Kelajak" markazi va maktab direktoriga bo'ysunadi.
+
+**Istiqbol reja (men tashkil etaman):**
+1. Maktabdagi barcha o'quvchilar ro'yxati va ma'lumotlar bazasini shakllantiraman
+2. Psixolog bilan iqtidor/qiziqishni aniqlovchi testlar o'tkazaman
+3. "Liderlar" guruhini tuzib, o'z-o'zini boshqarishni yo'lga qo'yaman
+4. "Kasbim — faxrim" uchrashuvlari va mahorat darslarini tashkil etaman
+5. Ijtimoiy guruhlar (kam ta'minlangan, vasiylik, nogiron) bilan tizimli ish
+6. Ota-onalar bilan talabgir kasblar yuzasidan yig'ilishlar
+7. Maktab rahbari bilan "Kasbga yo'naltirish xonasi"ni tashkil etaman
+8. Tarixiy obidalarga vatanparvarlik sayohatlari
+9. Fan va qiziqish to'garaklarini jonlantiraman
+10. IT markaz bilan hamkorlikda raqamli mashg'ulotlar
+11. "Haftada bir kitob" loyihasi (kitobxonlik madaniyati)
